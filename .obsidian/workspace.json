@@ -1,0 +1,174 @@
+{
+  "main": {
+    "id": "cac76ee9bb6bdade",
+    "type": "split",
+    "children": [
+      {
+        "id": "65d61b0912a73c05",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "c4b6a45cad79c956",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "First Semester/Aqeedah 1.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "Aqeedah 1"
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "vertical"
+  },
+  "left": {
+    "id": "286a7e6dc4d7dfa8",
+    "type": "split",
+    "children": [
+      {
+        "id": "7d23b9f3d5213d18",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "5ad46e230e8aeb10",
+            "type": "leaf",
+            "state": {
+              "type": "file-explorer",
+              "state": {
+                "sortOrder": "alphabetical"
+              },
+              "icon": "lucide-folder-closed",
+              "title": "Files"
+            }
+          },
+          {
+            "id": "b3d001e40154a816",
+            "type": "leaf",
+            "state": {
+              "type": "search",
+              "state": {
+                "query": "",
+                "matchingCase": false,
+                "explainSearch": false,
+                "collapseAll": false,
+                "extraContext": false,
+                "sortOrder": "alphabetical"
+              },
+              "icon": "lucide-search",
+              "title": "Search"
+            }
+          },
+          {
+            "id": "6bebb105f5b8fb5f",
+            "type": "leaf",
+            "state": {
+              "type": "bookmarks",
+              "state": {},
+              "icon": "lucide-bookmark",
+              "title": "Bookmarks"
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "horizontal",
+    "width": 300
+  },
+  "right": {
+    "id": "6212b34d0a9500fe",
+    "type": "split",
+    "children": [
+      {
+        "id": "9aa2ab2beb3af0f8",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "7c2d224c1b667e82",
+            "type": "leaf",
+            "state": {
+              "type": "backlink",
+              "state": {
+                "file": "First Semester/Aqeedah 1.md",
+                "collapseAll": false,
+                "extraContext": false,
+                "sortOrder": "alphabetical",
+                "showSearch": false,
+                "searchQuery": "",
+                "backlinkCollapsed": false,
+                "unlinkedCollapsed": true
+              },
+              "icon": "links-coming-in",
+              "title": "Backlinks for Aqeedah 1"
+            }
+          },
+          {
+            "id": "8cd2fd4b6d251434",
+            "type": "leaf",
+            "state": {
+              "type": "outgoing-link",
+              "state": {
+                "file": "First Semester/Aqeedah 1.md",
+                "linksCollapsed": false,
+                "unlinkedCollapsed": true
+              },
+              "icon": "links-going-out",
+              "title": "Outgoing links from Aqeedah 1"
+            }
+          },
+          {
+            "id": "3e05f602bd3161d3",
+            "type": "leaf",
+            "state": {
+              "type": "tag",
+              "state": {
+                "sortOrder": "frequency",
+                "useHierarchy": true
+              },
+              "icon": "lucide-tags",
+              "title": "Tags"
+            }
+          },
+          {
+            "id": "42d671eda2c9a065",
+            "type": "leaf",
+            "state": {
+              "type": "outline",
+              "state": {
+                "file": "First Semester/Aqeedah 1.md"
+              },
+              "icon": "lucide-list",
+              "title": "Outline of Aqeedah 1"
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "horizontal",
+    "width": 300,
+    "collapsed": true
+  },
+  "left-ribbon": {
+    "hiddenItems": {
+      "switcher:Open quick switcher": false,
+      "graph:Open graph view": false,
+      "canvas:Create new canvas": false,
+      "daily-notes:Open today's daily note": false,
+      "templates:Insert template": false,
+      "command-palette:Open command palette": false
+    }
+  },
+  "active": "c4b6a45cad79c956",
+  "lastOpenFiles": [
+    "First Semester/First Semester.md",
+    "First Semester/Aqeedah 1.md",
+    "First Semester/Hadith 1.md",
+    "Attachments",
+    "Zad Academy Notes.md",
+    "First Semester"
+  ]
+}
