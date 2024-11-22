@@ -1,6 +1,6 @@
 Back: [[First Semester]]
 
-### **Introduction to Sound Aqeedah**
+### **Unit 1: Introduction to Sound Aqeedah**
 
 1. **[[Meaning and Importance of Sound Aqeedah]]**
     - Define _aqeedah_ (core beliefs of Islam).
@@ -14,7 +14,7 @@ Back: [[First Semester]]
 
 ---
 
-### **Drifting Away from Sound Aqeedah**
+### **Unit 2: Drifting Away from Sound Aqeedah**
 
 1. **[[Causes of Drifting Away from Sound Aqeedah]]**
     - Enumerate reasons like ignorance, blind imitation, and influence of deviant ideologies.
@@ -23,7 +23,7 @@ Back: [[First Semester]]
 
 ---
 
-### **Tawhid**
+### **Unit 3: Tawhid**
 
 1. **[[Definition and Importance of Tawhid]]**
     - Define _Tawhid_ (oneness of Allah) and why it is central to Islam.
@@ -34,7 +34,7 @@ Back: [[First Semester]]
 
 ---
 
-### **Pillars and Categories of Tawhid**
+### **Unit 4: Pillars and Categories of Tawhid**
 
 1. **[[Pillars of Tawhid]]**
     - Explain its foundational principles (e.g., exclusive worship of Allah).
