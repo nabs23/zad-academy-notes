@@ -12,7 +12,7 @@
 ### **Rulings on Cleaning**
 1. It is **Sunnah** to use an **odd number** of pebbles or other materials during istijmar.  
    - **Evidence**: The Prophet ﷺ said:  
-     > _"Whoever cleans himself [with pebbles and the like], let him use an odd number."_  
+      _"Whoever cleans himself [with pebbles and the like], let him use an odd number."_  
      (Agreed upon)  
 
 2. If **water is unavailable**, it becomes **obligatory** to clean with pebbles, tissues, or similar materials until the dirt is removed.  
@@ -26,7 +26,7 @@
    - _"Bismillah, Allahumma inni a'oodhu bika min al-khubthi wal-khaba’ith."_  
    (_In the name of Allah, O Allah, I seek refuge with You from the male and female devils._)  
    - **Evidence**: The Prophet ﷺ said:  
-     > _"The screen between the eyes of the jinn and the private parts of the sons of Adam when one of them enters the bathroom is his saying, 'Bismillah.'"_  
+      _"The screen between the eyes of the jinn and the private parts of the sons of Adam when one of them enters the bathroom is his saying, 'Bismillah.'"_  
      (Narrated by At-Tirmidhi; Sahih by Al-Albani)
 
 ---
@@ -36,7 +36,7 @@
    - _"Ghufranak."_  
    (_I seek Your forgiveness._)  
    - **Evidence**: Aisha (رضي الله عنها) reported that the Prophet ﷺ said:  
-     > _"Ghufranak"_ upon leaving the bathroom.  
+      _"Ghufranak"_ upon leaving the bathroom.  
      (Narrated by At-Tirmidhi; Sahih by Al-Albani)
 
 2. Additional: _"Praise be to Allah who has taken away from me that which is harmful and has granted me well-being."_  
@@ -50,12 +50,12 @@
 
 2. Use the **left hand** for cleaning.  
    - **Evidence**: The Prophet ﷺ said:  
-     > _"When one of you urinates, let him not touch his private part with his right hand, nor wipe himself with it."_  
+      _"When one of you urinates, let him not touch his private part with his right hand, nor wipe himself with it."_  
      (Agreed upon)
 
 3. **Conceal the ‘Awrah** (private parts) from others.  
    - **Evidence**: The Prophet ﷺ said:  
-     > _"Guard your ‘awrah."_  
+      _"Guard your ‘awrah."_  
      (Narrated by At-Tirmidhi; Hasan by Al-Albani)
 
 4. **Sit while urinating (mustahabb)**:  
@@ -71,13 +71,13 @@
 1. **Prohibited Places for Relieving Oneself**:
    - Roads, shaded areas, near trees bearing fruit, and waterways.  
    - **Evidence**: The Prophet ﷺ said:  
-     > _"Beware of the two things that incur curses: relieving oneself in the road where people walk or in the places where they seek shade."_  
+      _"Beware of the two things that incur curses: relieving oneself in the road where people walk or in the places where they seek shade."_  
      (Narrated by Muslim)
 
 2. **Facing or turning one's back towards the Qiblah in open areas**:
    - Not permissible without a barrier.  
    - **Evidence**: The Prophet ﷺ said:  
-     > _"When you go to relieve yourselves, do not face the Qiblah or turn your back towards it."_  
+      _"When you go to relieve yourselves, do not face the Qiblah or turn your back towards it."_  
      (Agreed upon)
 
 ---
@@ -86,7 +86,7 @@
 1. Facing into the wind without a barrier.  
 2. Speaking while relieving oneself.  
    - **Evidence**: The Prophet ﷺ said:  
-     > _"No two men should go out to relieve themselves, uncovering their ‘awrah and talking to one another, for Allah detests that."_  
+      _"No two men should go out to relieve themselves, uncovering their ‘awrah and talking to one another, for Allah detests that."_  
      (Narrated by Abu Dawud; Sahih by Al-Albani)
 
 3. Urinating into holes.  
@@ -110,7 +110,7 @@
 1. **Using the Siwak (tooth stick)**:  
    - Cleans the mouth and is highly recommended before prayer, after waking, and when the mouth smells.  
    - **Evidence**: The Prophet ﷺ said:  
-     > _"Were it not that it would be too difficult for my Ummah, I would have instructed them to use the siwak at the time of every prayer."_  
+      _"Were it not that it would be too difficult for my Ummah, I would have instructed them to use the siwak at the time of every prayer."_  
      (Narrated by Muslim)
 
 ---
@@ -118,7 +118,7 @@
 2. **Shaving the Pubic Hair**:  
    - Removing hair from the private areas for cleanliness.  
    - **Evidence**:  
-     > _"A time limit has been set for us to trim the moustache, clip the nails, pluck the armpit hair, and shave the pubic hair, and that should not be left for more than forty days."_  
+      _"A time limit has been set for us to trim the moustache, clip the nails, pluck the armpit hair, and shave the pubic hair, and that should not be left for more than forty days."_  
      (Narrated by Muslim)
 
 ---
@@ -129,7 +129,7 @@
 4. **Letting the Beard Grow**:  
    - It is obligatory to let the beard grow, as per many scholars.  
    - **Evidence**:  
-     > _"Let your beards grow and trim your moustaches."_  
+      _"Let your beards grow and trim your moustaches."_  
      (Agreed upon)
 
 ---
@@ -150,7 +150,7 @@
 
 ### **Hadith on Fitrah**  
 Abu Hurayrah (رضي الله عنه) reported the Prophet ﷺ said:  
-> _"Five things are part of the Fitrah: trimming the moustache, letting the beard grow, using the siwak, circumcision, and shaving the pubic hair."_  
+ _"Five things are part of the Fitrah: trimming the moustache, letting the beard grow, using the siwak, circumcision, and shaving the pubic hair."_  
 (Agreed upon)
 
 ---

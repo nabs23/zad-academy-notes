@@ -21,7 +21,7 @@
 
 **Evidence**:  
 - Allah (ﷻ) says:  
-  > _"O you who have believed, when you rise to [perform] prayer, wash your faces and your forearms to the elbows and wipe over your heads and wash your feet to the ankles."_  
+   _"O you who have believed, when you rise to [perform] prayer, wash your faces and your forearms to the elbows and wipe over your heads and wash your feet to the ankles."_  
   (Surah Al-Ma’idah 5:6)
 
 ---
@@ -37,7 +37,7 @@ To ensure Wudu is valid, the following conditions must be met:
 4. **Intention (Niyyah)**:
    - Wudu is only valid with the intention of purification.  
    - **Evidence**: The Prophet ﷺ said:  
-     > _"Actions are but by intentions."_  
+      _"Actions are but by intentions."_  
      (Narrated by Al-Bukhari and Muslim)  
    - Note: The intention does not need to be uttered aloud.
 
@@ -78,22 +78,22 @@ The obligatory parts of Wudu are derived from Surah Al-Ma’idah (5:6) and consi
      - Rinsing the mouth (moving water in the mouth).  
      - Rinsing the nose (inhaling water and expelling it).  
    - **Evidence**: Allah (ﷻ) says:  
-     > _"Wash your faces."_  
+      _"Wash your faces."_  
 
 2. **Washing the arms (including the hands) up to the elbows**:  
    - **Evidence**: Allah (ﷻ) says:  
-     > _"Wash your forearms to the elbows."_  
+      _"Wash your forearms to the elbows."_  
 
 3. **Wiping the entire head, including the ears**:  
    - **Evidence**: Allah (ﷻ) says:  
-     > _"Wipe over your heads."_  
+      _"Wipe over your heads."_  
    - Sunnah: Wiping starts from the front to the back of the head and back again.
 
 4. **Washing the feet up to the ankles**:  
    - **Evidence**: Allah (ﷻ) says:  
-     > _"Wash your feet to the ankles."_  
+      _"Wash your feet to the ankles."_  
    - The Prophet ﷺ warned:  
-     > _"Woe to the heels from the Fire!"_  
+      _"Woe to the heels from the Fire!"_  
      (Agreed upon)
 
 5. **Doing these actions in order**:  
@@ -123,12 +123,12 @@ The following are **Sunnah (recommended)** acts in Wudu:
 
 1. **Using the Siwak**:  
    - The Prophet ﷺ said:  
-     > _"Were it not that it would be too difficult for my Ummah, I would have instructed them to use the Siwak at the time of every Wudu."_  
+      _"Were it not that it would be too difficult for my Ummah, I would have instructed them to use the Siwak at the time of every Wudu."_  
      (Narrated by Ahmad)
 
 2. **Saying Bismillah**:  
    - The Prophet ﷺ said:  
-     > _"There is no Wudu for the one who does not mention the name of Allah when doing it."_  
+      _"There is no Wudu for the one who does not mention the name of Allah when doing it."_  
      (Narrated by Abu Dawud; Sahih by Al-Albani)
 
 3. **Washing the hands three times** at the start.  
@@ -149,7 +149,7 @@ The following are **Sunnah (recommended)** acts in Wudu:
 
 10. **Reciting Dhikr after Wudu**:  
    - The Prophet ﷺ said:  
-     > _"Whoever does Wudu and says, 'Ashhadu an la ilaha illallah, wa ashhadu anna Muhammadan abduhu wa rasuluhu,' the eight gates of Paradise will be opened for him."_  
+      _"Whoever does Wudu and says, 'Ashhadu an la ilaha illallah, wa ashhadu anna Muhammadan abduhu wa rasuluhu,' the eight gates of Paradise will be opened for him."_  
      (Narrated by Muslim)
 
 ---
@@ -161,7 +161,7 @@ The following actions invalidate Wudu:
 1. **Anything that comes out of the front or back passage**:  
    - Examples: Urine, stool, wind, semen, madhiy (pre-seminal fluid), and wadiy (thick white fluid).  
    - **Evidence**: Allah (ﷻ) says:  
-     > _"If one of you comes from the place of relieving himself..."_  
+      _"If one of you comes from the place of relieving himself..."_  
      (Surah Al-Ma’idah 5:6)  
 
 2. **Loss of reason**:  
@@ -169,12 +169,12 @@ The following actions invalidate Wudu:
 
 3. **Touching private parts without a barrier**:  
    - **Evidence**: The Prophet ﷺ said:  
-     > _"Whoever touches his private part, let him do Wudu."_  
+      _"Whoever touches his private part, let him do Wudu."_  
      (Narrated by Abu Dawud; Sahih by Al-Albani)
 
 4. **Eating camel meat**:  
    - **Evidence**: The Prophet ﷺ instructed:  
-     > _"Do Wudu after eating camel meat."_  
+      _"Do Wudu after eating camel meat."_  
      (Narrated by Muslim)
 
 ---
@@ -188,5 +188,5 @@ The following actions invalidate Wudu:
    - Assume impurity.  
 
 **Evidence**: The Prophet ﷺ said:  
-> _"If one of you feels something in his stomach but is unsure if something came out, he should not leave the mosque unless he hears a sound or notices a smell."_  
+ _"If one of you feels something in his stomach but is unsure if something came out, he should not leave the mosque unless he hears a sound or notices a smell."_  
 (Narrated by Muslim)

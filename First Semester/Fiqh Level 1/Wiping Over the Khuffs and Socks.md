@@ -10,7 +10,7 @@
 ### **2. Prescription for Wiping Over the Khuffs**
 - **Evidence from the Qur’an**:  
   - Allah (ﷻ) says:  
-    > _"Wipe over your heads and [over] your feet to the ankles."_  
+     _"Wipe over your heads and [over] your feet to the ankles."_  
     (Surah Al-Ma’idah 5:6)  
     - When read in the genitive case, the verse implies wiping over the feet.
 
@@ -24,7 +24,7 @@ Four conditions must be met:
 
 1. **Worn in a state of purity**:  
    - The Prophet ﷺ said to Al-Mugheerah ibn Shu'bah:  
-     > _"Leave them (the khuffs), for I put them on in a state of purity."_  
+      _"Leave them (the khuffs), for I put them on in a state of purity."_  
      (Narrated by Al-Bukhari and Muslim)
 
 2. **The Khuffs must be pure (clean)**:  
@@ -35,7 +35,7 @@ Four conditions must be met:
 3. **Wiping is valid for minor impurity (Hadath Asghar) only**:  
    - Major impurity (Hadath Akbar) requires **Ghusl**, not wiping.  
    - Evidence: The Prophet ﷺ said:  
-     > _"When we were travelling, the Messenger of Allah ﷺ instructed us not to take off our khuffs for three days and nights, except in the case of janabah."_  
+      _"When we were travelling, the Messenger of Allah ﷺ instructed us not to take off our khuffs for three days and nights, except in the case of janabah."_  
      (Narrated by Ahmad and At-Tirmidhi)
 
 4. **Within the stipulated time period**:  
@@ -63,7 +63,7 @@ Four conditions must be met:
 ### **5. Method of Wiping Over the Khuffs**
 - Wipe only the **top of the Khuffs**, not the bottom.  
   - Evidence: The Prophet ﷺ said:  
-    > _"If the religion were based on opinion, we would wipe the underside of the Khuffs, but I saw the Messenger of Allah ﷺ wiping over the tops of them."_  
+     _"If the religion were based on opinion, we would wipe the underside of the Khuffs, but I saw the Messenger of Allah ﷺ wiping over the tops of them."_  
     (Narrated by Abu Dawud; Sahih by Al-Albani)
 
 ---
@@ -73,21 +73,21 @@ Four conditions must be met:
 1. **Socks and Boots**:  
    - Socks (including non-leather ones) that cover the ankles are permissible to wipe over.  
    - **Evidence**: Hadith of Al-Mugheerah ibn Shu'bah:  
-     > _"The Prophet ﷺ did Wudu and wiped over his socks and sandals."_  
+      _"The Prophet ﷺ did Wudu and wiped over his socks and sandals."_  
      (Narrated by Ahmad and At-Tirmidhi)
 
 2. **Turbans**:  
    - The Prophet ﷺ permitted wiping over turbans in certain cases.  
    - Evidence:  
      - Hadith of Thawban:  
-       > _"The Messenger of Allah ﷺ wiped over their turbans and Khuffs."_  
+        _"The Messenger of Allah ﷺ wiped over their turbans and Khuffs."_  
        (Narrated by Ahmad, Abu Dawud, and Al-Hakim)
 
 3. **Plaster Casts and Surgical Dressings**:  
    - One should wipe over the **entire cast or dressing**, not just part of it.  
    - No specific time limit applies to wiping over these items.  
    - **Evidence**: Hadith of Jabir:  
-     > _"The Prophet ﷺ said: Cover the wound with a piece of cloth and wipe over it."_  
+      _"The Prophet ﷺ said: Cover the wound with a piece of cloth and wipe over it."_  
      (Narrated by Abu Dawud and Ibn Majah; Sahih by Al-Albani)
 
 4. **Women’s Headcovers**:  

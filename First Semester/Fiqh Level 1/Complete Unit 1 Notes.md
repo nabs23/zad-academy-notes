@@ -12,7 +12,7 @@ Back: [[Fiqh Level 1]]
 
 **Evidence:**
 - Allah (ﷻ) says:  
-  > _"Indeed, Allah loves those who are constantly repentant and loves those who purify themselves."_  
+   _"Indeed, Allah loves those who are constantly repentant and loves those who purify themselves."_  
   (Surah Al-Baqarah 2:222)
 
 ---
@@ -22,10 +22,10 @@ Back: [[Fiqh Level 1]]
 - Refers to cleansing the heart and soul from **shirk** (associating partners with Allah) and **sins**.
 - **Evidence**:
   - Allah (ﷻ) says:  
-    > _"O you who have believed, indeed the polytheists are unclean (najis)."_  
+     _"O you who have believed, indeed the polytheists are unclean (najis)."_  
     (Surah At-Tawbah 9:28)  
   - Allah (ﷻ) also says:  
-    > _"Allah intends only to remove from you the impurity [of sin], O people of the [Prophet's] household, and to purify you with [extensive] purification."_  
+     _"Allah intends only to remove from you the impurity [of sin], O people of the [Prophet's] household, and to purify you with [extensive] purification."_  
     (Surah Al-Ahzab 33:33)
 
 #### **2. Physical Purification**
@@ -67,7 +67,7 @@ Physical impurities must be removed from:
 
 **Evidence**:
 - Allah (ﷻ) commands:  
-  > _"And your clothing purify."_  
+   _"And your clothing purify."_  
   (Surah Al-Muddathir 74:4)  
 
 ---
@@ -99,11 +99,11 @@ Physical impurities must be removed from:
 
 #### **Evidence**:
 1. Allah (ﷻ) says:  
-   > _"And We send down from the sky pure water."_  
+    _"And We send down from the sky pure water."_  
    (Surah Al-Furqan 25:48)  
 
 2. The Prophet ﷺ said regarding seawater:  
-   > _"Its water is pure and its dead [animals] are halal."_  
+    _"Its water is pure and its dead [animals] are halal."_  
    (Narrated by Malik in Al-Muwatta; classified as Sahih by Al-Albani)  
 
 ---
@@ -135,7 +135,7 @@ Physical impurities must be removed from:
 
 **Evidence**:
 - The Prophet ﷺ said:  
-  > _"Water is pure and nothing makes it impure."_  
+   _"Water is pure and nothing makes it impure."_  
   (Narrated by At-Tirmidhi; classified as Sahih by Al-Albani)
 
 ---
@@ -152,7 +152,7 @@ Physical impurities must be removed from:
    - **Haram**: Using vessels made of gold or silver for eating, drinking, or purification.  
    - **Evidence**:
      - The Prophet ﷺ said:  
-       > _"Do not drink from vessels of gold and silver, and do not eat from plates made of them, because they are for them in this world and for us in the Hereafter."_  
+        _"Do not drink from vessels of gold and silver, and do not eat from plates made of them, because they are for them in this world and for us in the Hereafter."_  
        (Agreed upon)
 
 2. **Soldered Vessels**:
@@ -165,7 +165,7 @@ Physical impurities must be removed from:
    - **Conditionally Permissible**: If the vessels are impure, they must be cleaned before use.  
    - **Evidence**:
      - Jabir (رضي الله عنه) said:  
-       > _"We used to go on campaigns with the Prophet ﷺ and use the utensils of the polytheists, and he did not criticize us for that."_  
+        _"We used to go on campaigns with the Prophet ﷺ and use the utensils of the polytheists, and he did not criticize us for that."_  
        (Narrated by Ahmad and Abu Dawud; Sahih by Al-Albani)
 
 ---

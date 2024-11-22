@@ -5,10 +5,9 @@ Back: [[Fiqh Level 1]]
 - **Fiqh meaning**: The removal of physical and spiritual impurities, allowing one to fulfill acts of worship properly.  
 - **Evidence**:  
   - Allah (ﷻ) says:  
-    > _"Indeed, the polytheists are unclean (najis)."_  
-    ([Surah At-Tawbah 9:28])  
+    _"Indeed, the polytheists are unclean (najis)."_  ([Surah At-Tawbah 9:28])  
   - Allah (ﷻ) also says:  
-    > _"Allah intends only to remove from you the impurity [of sin], O people of the [Prophet's] household, and to purify you with [extensive] purification."_  
+    _"Allah intends only to remove from you the impurity [of sin], O people of the [Prophet's] household, and to purify you with [extensive] purification."_  
     ([Surah Al-Ahzab 33:33])  
 
 ---
