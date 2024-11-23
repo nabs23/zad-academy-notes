@@ -1,4 +1,4 @@
-Back: [[First Semester]]
+Back: [[Semester 1 Notes]]
 
 ### **Unit 1: Introduction to Sound Aqeedah**
 

@@ -1,4 +1,4 @@
-Back: [[First Semester]]
+Back: [[Semester 1 Notes]]
 
 ### **Unit 1: Purification, Impure Substances, and Categories of Water**
 1. **[[Definition of Purification and Its Categories]]**
