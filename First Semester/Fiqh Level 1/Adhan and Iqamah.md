@@ -1,3 +1,4 @@
+Back: [[Fiqh Level 1]]
 ### Adhan and Iqamah: Detailed Notes
 
 #### **Definition:**
@@ -125,5 +126,4 @@
 4. It is preferable that the **same person gives both the adhan and iqamah**, though it is not obligatory.
 
 ---
-
-This concludes the structured notes on **Adhan and Iqamah** with key rulings, virtues, and practices based on the provided material. Let me know if further details are needed.
+Back: [[Fiqh Level 1]]

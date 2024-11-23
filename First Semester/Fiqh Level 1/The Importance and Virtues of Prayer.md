@@ -1,3 +1,4 @@
+Back: [[Fiqh Level 1]]
 #### Definition of Prayer:
 - **Linguistic Meaning**: 
   - The word *salat* means supplication or invocation.
@@ -91,4 +92,4 @@
 
 --- 
 
-These points outline the significance, virtues, and rulings related to prayer in Islam, preparing you for both understanding and exams. Let me know if you'd like further clarification or more details.
+Back: [[Fiqh Level 1]]

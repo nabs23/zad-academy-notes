@@ -1,3 +1,4 @@
+Back: [[Fiqh Level 1]]
 ### Menses (Hayd) and Postnatal Bleeding (Nifas) Notes
 
 #### Definition of Hayd (Menses):
@@ -73,3 +74,7 @@
 2. **Menses**: Periodic uterine blood following a natural cycle.
 3. **Nifas**: Blood after childbirth.
 4. **Istihaadah**: Irregular or non-menstrual bleeding, treated as impurity but does not invalidate prayers or fasting beyond wudu requirements.
+
+
+---
+Back: [[Fiqh Level 1]]

@@ -1,3 +1,5 @@
+Back: [[Fiqh Level 1]]
+
 #### 1. **Raising the Hands**:
 - **When**: Performed at four points:
   1. While saying the opening takbeer (takbeer al-ihram).
@@ -114,6 +116,5 @@
 - **Evidence**:  
   Sa‘d ibn Abi Waqqas (RA) narrated this Sunnah, as seen from the Prophet ﷺ. (Narrated by Muslim)
 
----
 
-These Sunnahs enhance the prayer’s completeness, showing the depth of devotion and precision prescribed by the Prophet ﷺ.
+Back: [[Fiqh Level 1]]

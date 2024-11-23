@@ -158,3 +158,6 @@ Abu Hurayrah (رضي الله عنه) reported the Prophet ﷺ said:
 ### **Additional Acts of Fitrah**:
 - Taking water into the nose and rinsing the mouth.  
 - Cleaning oneself with water after relieving oneself (**Istinja**).
+
+---
+Back: [[Fiqh Level 1]]

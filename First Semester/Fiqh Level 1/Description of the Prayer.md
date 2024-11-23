@@ -1,6 +1,4 @@
-### Notes on the Description of Prayer (Unit 6: Description of the Prayer, What is Disliked in Prayer, and What Invalidates It)
-
----
+Back: [[Fiqh Level 1]]
 
 #### **1. Preparation and Intent**
 - Before starting prayer, the worshipper should:
@@ -85,3 +83,5 @@
   - *"La ilaha illa Allah, wahdahu la sharika lah, lahul mulku wa lahul hamdu wa huwa 'ala kulli shay'in qadeer."*
   - *"SubhanAllah" (33x), "Alhamdulillah" (33x), "Allahu Akbar" (34x).*
 
+
+Back: [[Fiqh Level 1]]

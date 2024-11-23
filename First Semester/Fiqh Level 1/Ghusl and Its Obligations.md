@@ -99,3 +99,7 @@
 - The minimum requirement is to pour water over the entire body.
 - **Evidence**: 
   - The Prophet ﷺ instructed a man who was in a state of janabah: *“Take this water and pour it over yourself.”* (Agreed upon)
+
+
+---
+Back: [[Fiqh Level 1]]

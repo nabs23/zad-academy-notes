@@ -1,8 +1,4 @@
-### **Things That Invalidate the Prayer**
-
-The prayer may be invalidated by several actions or occurrences as outlined below:
-
----
+Back: [[Fiqh Level 1]]
 
 #### **1. Wudu Becoming Invalidated**
 - Purity is a condition for the prayer's validity.
@@ -76,3 +72,5 @@ The prayer may be invalidated by several actions or occurrences as outlined belo
   2. **Laughing Out Loud:** Invalidates the prayer as it disrupts the solemnity and focus.
   3. **Chuckling (Quiet Laughter):** If it produces two sounds, it invalidates the prayer according to the majority of scholars.
 
+
+Back: [[Fiqh Level 1]]

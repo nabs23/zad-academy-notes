@@ -1,3 +1,5 @@
+Back: [[Fiqh Level 1]]
+
 #### Introduction
 - **Definition**: Obligatory parts are necessary acts of prayer but are of a lesser degree than essential parts. 
   - If omitted intentionally, the prayer is invalid.
@@ -43,3 +45,4 @@
 - Tasbeeh in bowing and prostration should be said once at a minimum, but increasing it is encouraged.
 - The obligatory parts reflect the balance between fulfilling the prescribed acts of prayer and making allowances for human error. 
 
+Back: [[Fiqh Level 1]]

@@ -1,4 +1,4 @@
-### Notes: Conditions of Prayer
+Back: [[Fiqh Level 1]]
 
 #### 1. **Intention (Niyyah)**
 - The intention is essential and must be made in the heart; it is not required to verbalize it.
@@ -82,3 +82,5 @@
   - If carrying items like a catheter bag is necessary, the prayer is valid if precautions are taken.
   - If easily removable, it must be set aside for the prayer to be valid. 
 
+
+Back: [[Fiqh Level 1]]

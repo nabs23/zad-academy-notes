@@ -1,7 +1,3 @@
-## **Wiping Over the Khuffs and Socks**
-
----
-
 ### **1. Definition of Khuffs**  
 - **Khuffs**: A type of footwear made of thin leather or similar material, covering the ankles and more, similar to socks.
 
@@ -128,3 +124,6 @@ Four conditions must be met:
 3. **State of Purity**:  
    - **Khuffs**: Must be put on in a state of purity.  
    - **Dressings**: No such condition applies.
+
+---
+Back: [[Fiqh Level 1]]

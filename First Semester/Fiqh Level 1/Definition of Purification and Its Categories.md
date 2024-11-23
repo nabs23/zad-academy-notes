@@ -76,3 +76,6 @@ Purification is divided into two main categories:
 3. **Minor and Major Impurities must be removed in prescribed ways**:  
    - Wudu for Minor Hadath.  
    - Ghusl for Major Hadath.  
+
+---
+Back: [[Fiqh Level 1]]

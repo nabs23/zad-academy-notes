@@ -1,3 +1,4 @@
+Back: [[Fiqh Level 1]]
 ### The Times of Prayer
 
 #### General Ruling
@@ -47,3 +48,6 @@
 ### Key Notes
 - The times of prayer emphasize punctuality and avoiding negligence in delaying the prayer.
 - Missing obligatory prayers, especially Asr, carries severe consequences as highlighted in the hadiths.
+
+
+Back: [[Fiqh Level 1]]

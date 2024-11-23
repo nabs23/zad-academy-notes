@@ -190,3 +190,7 @@ The following actions invalidate Wudu:
 **Evidence**: The Prophet ﷺ said:  
  _"If one of you feels something in his stomach but is unsure if something came out, he should not leave the mosque unless he hears a sound or notices a smell."_  
 (Narrated by Muslim)
+
+
+---
+Back: [[Fiqh Level 1]]

@@ -1,4 +1,4 @@
-### Actions That Are Disliked (Makruh) in Prayer**
+Back: [[Fiqh Level 1]]
 
 #### **1. Turning Slightly Unnecessarily**
 - **Evidence**: The Prophet ﷺ said when asked about turning during prayer:  
@@ -88,5 +88,4 @@
    - Movements without need or purpose.  
 
 --- 
-
-These rulings ensure prayer is performed with concentration and dignity, avoiding actions that could diminish its value or validity.
+Back: [[Fiqh Level 1]]

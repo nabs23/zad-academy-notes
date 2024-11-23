@@ -116,3 +116,7 @@ There are three scenarios:
   - Pray as you are without tayammum, as prayer time is more important than purification in such cases.
 - **Repeat of Prayer**: 
   - When there is no water or dust, prayer does not need to be repeated later once water becomes available.
+
+
+---
+Back: [[Fiqh Level 1]]
