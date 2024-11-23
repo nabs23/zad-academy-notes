@@ -1,6 +1,5 @@
 Back: [[Aqeedah Level 1]]
 
-### **Categories of Tawhid**  
 The scholars have divided Tawhid into three categories based on the Qur'an and Sunnah. These categories define the different aspects of the Oneness of Allah and help in understanding the concept of Tawhid comprehensively.
 
 ---
@@ -63,5 +62,4 @@ Belief in **Tawhid ar-Rububiyah** naturally leads to **Tawhid al-Uluhiyah (Onene
 **Believing in Tawhid ar-Rububiyah implies recognizing that worship (Uluhiyah) is due only to Allah.**
 
 --- 
-
-In the next sections, we will explore **Tawhid al-Uluhiyah** and **Tawhid al-Asma wa's-Sifat.**
+Back: [[Aqeedah Level 1]]

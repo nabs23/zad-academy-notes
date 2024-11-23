@@ -1,11 +1,7 @@
 Back: [[Aqeedah Level 1]]
 
-### **The Pillars of Tawhid**  
-
 Tawhid (the Oneness of Allah) has two essential pillars without which it cannot be established.
 These pillars are:
-
----
 
 ### **1. Negation (An-Nafy):**  
 - **Definition:**  
@@ -69,3 +65,7 @@ These pillars are:
 ---
 
 This understanding of **negation and affirmation** emphasizes the comprehensive nature of Tawhid, requiring both the rejection of falsehood and the affirmation of Allah’s exclusive right to be worshiped.
+
+
+---
+Back: [[Aqeedah Level 1]]

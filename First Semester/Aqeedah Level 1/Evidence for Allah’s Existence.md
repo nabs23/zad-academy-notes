@@ -1,10 +1,6 @@
 Back: [[Aqeedah Level 1]]
 
-### **Evidence for the Existence of Allah (Other than Religious Texts)**  
-
 When presenting the existence of Allah to non-believers or those who reject religious texts, it is essential to use logical, natural, and tangible evidence. This approach provides a strong basis for affirming belief in Allah. Below are the three types of evidence mentioned:
-
----
 
 ### **1. Evidence of Innate Human Nature (Fitrah):**  
 
@@ -98,3 +94,6 @@ The existence of Allah is supported by:
 3. **Tangible Evidence:** Answered prayers and miracles of the Prophets.  
 
 These proofs provide a comprehensive foundation for belief in Allah, beyond reliance on religious texts alone.  
+
+---
+Back: [[Aqeedah Level 1]]

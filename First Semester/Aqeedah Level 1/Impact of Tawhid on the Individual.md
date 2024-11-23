@@ -56,3 +56,6 @@ Back: [[Aqeedah Level 1]]
 - **Example from Real Life**:  
   - A Muslim student confronted the absurdity of idol worship in an Indian university.  
   - The professor’s reverence for a cow highlights the superiority and purity of Tawhid, which prevents such degradation.
+
+---
+Back: [[Aqeedah Level 1]]

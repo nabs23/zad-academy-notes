@@ -7,7 +7,7 @@ Back: [[Aqeedah Level 1]]
 a. *“And, [moreover], this is My path, which is straight, so follow it; and do not follow [other] ways, for you will be separated from His way.”* ([al-An’am 6:153](https://quran.com/6/153))  
 b. *“Follow, [O mankind], what has been revealed to you from your Lord and do not follow other than Him any allies.”* ([al-A’raf 7:3](https://quran.com/7/3))  
 c. The Prophet ﷺ said:  
-   *“Those among you who live long enough will see great differences. Beware of newly introduced matters, for they are misguidance. Whoever among you lives to see that should adhere to my Sunnah and the way of the rightly-guided caliphs; adhere firmly to it.”* (*Narrated above*)  
+*“Those among you who live long enough will see great differences. Beware of newly introduced matters, for they are misguidance. Whoever among you lives to see that should adhere to my Sunnah and the way of the rightly-guided caliphs; adhere firmly to it.”* (*Narrated above*)  
 
 ---
 
@@ -64,3 +64,7 @@ c. *“The Shaytan comes to one of you and says: Who created such and such? Unti
 a. *“Then We put you, [O Muhammad], on an ordained way concerning the matter [of religion]; so follow it and do not follow the inclinations of those who do not know.”* ([al-Jathiyah 45:18](https://quran.com/45/18))  
 b. *“O David, judge between the people in truth and do not follow [your own] desire.”* ([Saad 38:26](https://quran.com/38/26))  
 c. *“And most of them follow not except assumption. Indeed, assumption avails not against the truth at all.”* ([Yunus 10:36](https://quran.com/10/36))  
+
+
+---
+Back: [[Aqeedah Level 1]]

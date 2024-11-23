@@ -58,3 +58,7 @@ The Sunnah explains and complements the Qur’an. It consists of:
 - If there is a contradiction between religious texts and reason, precedence is given to the texts because:  
   1. The texts are infallible and unchanging.  
   2. Reason can be influenced and is subject to change.  
+
+
+---
+Back: [[Aqeedah Level 1]]

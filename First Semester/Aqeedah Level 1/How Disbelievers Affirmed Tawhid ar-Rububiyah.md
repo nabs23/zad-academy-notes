@@ -1,10 +1,6 @@
 Back: [[Aqeedah Level 1]]
 
-### **How the Disbelievers and Polytheists Affirm Tawhid ar-Rububiyah**  
-
 Even the disbelievers and polytheists affirm Tawhid ar-Rububiyah (Oneness of Lordship) in the sense that they recognize Allah as the Creator, Sovereign, and Sustainer of all things. However, this affirmation alone is not sufficient for salvation because they associate others with Allah in worship (Shirk).
-
----
 
 ### **Evidence of Their Affirmation in the Qur'an:**  
 
@@ -66,3 +62,6 @@ However, despite this acknowledgment, they do not single out Allah for worship, 
 The recognition of Allah's Lordship (Tawhid ar-Rububiyah) by disbelievers serves as a logical argument against them. If they believe that Allah alone creates, controls, and provides, then they should logically worship Him alone without associating partners.
 
 In the next section, we will explore **Tawhid al-Uluhiyah**, which emphasizes singling out Allah in worship.
+
+---
+Back: [[Aqeedah Level 1]]

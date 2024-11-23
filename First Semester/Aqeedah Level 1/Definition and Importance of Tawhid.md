@@ -1,7 +1,5 @@
 Back: [[Aqeedah Level 1]]
 
-## **Definition of Tawhid**
-
 ### **1. Linguistic Definition**
 - The word *Tawhid* is derived from the root **wahhada**, meaning "to make something one."
 
@@ -93,3 +91,6 @@ Back: [[Aqeedah Level 1]]
 - A hadith narrated by at-Tirmidhi describes a man’s deeds recorded on 99 scrolls. These are outweighed by a slip of paper that states: *“Laa ilaaha illa Allah.”*  
 - **Ibn Taymiyyah’s Commentary**:  
   *The weight of these words depends on the sincerity, purity of heart, and good intentions behind them.*  
+
+---
+Back: [[Aqeedah Level 1]]

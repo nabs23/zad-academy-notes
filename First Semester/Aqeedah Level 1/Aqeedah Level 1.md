@@ -2,72 +2,69 @@ Back: [[First Semester]]
 
 ### **Unit 1: Introduction to Sound Aqeedah**
 
-1. **[[Meaning and Importance of Sound Aqeedah]]**
-    - Define _aqeedah_ (core beliefs of Islam).
-    - Explain its significance in guiding a Muslim’s life and ensuring correct worship.
-2. **[[Distinguishing Features of Sound Aqeedah]]**
-    - Outline what sets sound aqeedah apart (e.g., clarity, rooted in revelation, leads to correct action).
-3. **[[Sources of Sound Aqeedah]]**
-    - Highlight sources such as the Qur’an, Sunnah, consensus of scholars (_ijma_), and analogy (_qiyas_).
-4. **[[Verification Principles by Ahl as-Sunnah]]**
-    - Explain their approach: reliance on authentic texts, rejection of innovations (_bid’ah_), and respect for the understanding of the pious predecessors (_salaf_).
+1. **[[Meaning and Importance of Sound Aqeedah]]**  
+    - Define _aqeedah_ as the core beliefs of Islam, encompassing faith in Allah, His messengers, and the unseen.  
+    - Explain its role in guiding a Muslim’s beliefs, actions, and ensuring correct worship of Allah.  
+
+2. **[[Distinguishing Features of Sound Aqeedah]]**  
+    - Highlight its characteristics: clarity, simplicity, alignment with revelation, and its role in leading to correct belief and action.  
+
+3. **[[Sources of Sound Aqeedah]]**  
+    - Outline primary sources: Qur’an, Sunnah, consensus of scholars (_ijma_), and analogy (_qiyas_).  
+    - Emphasize the role of the understanding of the pious predecessors (_salaf_).  
+
+4. **[[Verification Principles by Ahl as-Sunnah]]**  
+    - Explain their methodology: adherence to authentic texts, rejection of innovations (_bid’ah_), and interpretation consistent with the understanding of the _salaf_.  
 
 ---
 
 ### **Unit 2: Drifting Away from Sound Aqeedah**
 
-1. **[[Causes of Drifting Away from Sound Aqeedah]]**
-    - Enumerate reasons like ignorance, blind imitation, and influence of deviant ideologies.
-2. **[[Means of Protecting Oneself Against Deviating from Sound Aqeedah]]**
-    - List ways to protect oneself: seeking knowledge, adhering to the Qur’an and Sunnah, and avoiding misleading sources.
+1. **[[Causes of Drifting Away from Sound Aqeedah]]**  
+    - List key causes such as ignorance, blind following, influence of deviant ideologies, worldly desires, and lack of sound knowledge.  
+
+2. **[[Means of Protecting Oneself Against Deviating from Sound Aqeedah]]**  
+    - Elaborate on protective measures: acquiring authentic Islamic knowledge, adhering to the Qur’an and Sunnah, following trustworthy scholars, avoiding innovations, and strengthening faith through worship.  
 
 ---
 
 ### **Unit 3: Tawhid**
 
-1. **[[Definition and Importance of Tawhid]]**
-    - Define _Tawhid_ (oneness of Allah) and why it is central to Islam.
-2. **[[Impact of Tawhid on the Individual]]**
-    - Discuss spiritual and practical impacts: peace, reliance on Allah, and moral uprightness.
-3. **[[Universality]]**
-    - Note that Tawhid was the core message of all messengers.
+1. **[[Definition and Importance of Tawhid]]**  
+    - Define _Tawhid_ as the oneness of Allah in His Lordship, worship, and attributes.  
+    - Explain why it is the foundation of Islam and the condition for salvation.  
+
+2. **[[Impact of Tawhid on the Individual]]**  
+    - Explore its impact: fostering peace, sincerity, reliance on Allah, moral uprightness, and spiritual clarity.  
+
+3. **[[Universality of Tawhid]]**  
+    - Highlight how Tawhid was the central message of all messengers.  
 
 ---
 
 ### **Unit 4: Pillars and Categories of Tawhid**
 
-1. **[[Pillars of Tawhid]]**
-    - Explain its foundational principles (e.g., exclusive worship of Allah).
-2. **[[Categories of Tawhid]]**
-    - Detail the three categories:
-        - _Tawhid ar-Rububiyah_ (Lordship)
-        - _Tawhid al-Uluhiyah_ (Worship)
-        - _Tawhid al-Asma wa-Sifat_ (Names and Attributes).
-3. **[[Affirmation by Disbelievers]]**
-    - Discuss how polytheists acknowledged Allah’s lordship but failed in worship.
-4. **[[Impacts of Belief in Tawhid ar-Rububiyah]]**
-    - Explain how it strengthens reliance and gratitude toward Allah.
-5. **[[Evidence for Allah’s Existence]]**
-    - Include logical and observational evidence (e.g., creation, order in the universe).
+1. **[[Pillars of Tawhid]]**  
+    - Detail the two essential pillars: negation (_Laa ilaaha_, rejecting false gods) and affirmation (_illa Allah_, worshipping Allah alone).  
 
+2. **[[Categories of Tawhid]]**  
+    - Discuss the three main categories:  
+        - _Tawhid ar-Rububiyah_ (Oneness of Lordship): Allah is the Creator, Sustainer, and Sovereign.  
+        - _Tawhid al-Uluhiyah_ (Oneness of Worship): Allah alone deserves worship.  
+        - _Tawhid al-Asma wa-Sifat_ (Oneness of Names and Attributes): Affirming Allah’s names and attributes as revealed, without distortion or denial.  
+
+3. **[[How Disbelievers Affirmed Tawhid ar-Rububiyah]]**  
+    - Discuss how disbelievers historically acknowledged Allah’s Lordship but failed in exclusive worship (_Tawhid al-Uluhiyah_).  
+
+4. **[[Impacts of Belief in Tawhid ar-Rububiyah]]**  
+    - Explain the practical impacts: developing reliance, gratitude, humility, and sincerity toward Allah.  
+
+5. **[[Evidence for Allah’s Existence]]**  
+    - Present evidence beyond religious texts:  
+        - _Innate human nature (fitrah)_: An intrinsic recognition of a Creator.  
+        - _Reason and common sense_: Reflection on creation points to Allah’s existence.  
+        - _Tangible evidence_: Observations of answered prayers and the miracles of the Prophets.  
 
 ---
 
-- Introduction to sound aqeedah
-	- The meaning and importance of sound aqeedah
-	- Distinguishing features of sound aqeedah
-	- Sources from which aqeedah is learned
-	- The principles of Ahl as-Sunnah in verifying issues of aqeedah
-- Drifting away from sound aqeedah
-	- The causes of drifting away from sound aqeedah
-	- Means of protecting oneself against drifting away from sound aqeedah
-- Tawhid
-	- Definition and importance of Tawhid
-	- Impact of Tawhid on the individual
-	- Explanation that Tawhid is Islam, and it is the religion of all the messengers
-- The pillars of Tawhid
-	- The pillars of Tawhid
-	- The categories of Tawhid
-	- How the disbelievers and polytheists affirm Tawhid ar-Rububiyah (oneness of divine lordship)
-	- Impacts of belief in Tawhid ar-Rububiya
-	- Evidence for the existince of Allah other than the religious texts
+### [[Aqeedah Level 1 Summary]]

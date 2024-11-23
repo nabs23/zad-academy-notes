@@ -1,9 +1,5 @@
 Back: [[Aqeedah Level 1]]
 
-Here’s a detailed breakdown of **"Tawhid is Islam, and it is the religion of all the messengers"** based on the text provided:
-
----
-
 ### **1. Tawhid as the Core of Islam**
 - **Definition of Islam**:  
   Islam is the religion with which Allah sent His messengers and revealed His Books. It revolves around **affirming the oneness of Allah** by worshiping Him and submitting completely to Him.  
@@ -57,3 +53,5 @@ Here’s a detailed breakdown of **"Tawhid is Islam, and it is the religion of a
 ### **Key Takeaway**
 The fundamental belief system of all messengers is one and the same—**Tawhid (oneness of Allah)**. While laws changed based on the circumstances of the people, the essential call to Islam and submission to Allah remained consistent.
 
+---
+Back: [[Aqeedah Level 1]]

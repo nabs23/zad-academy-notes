@@ -21,3 +21,7 @@ Sound Islamic aqeedah stands apart from false beliefs and innovations (*bid’ah
 
 5. **Moderation**  
    - It is balanced and avoids both extremes: exaggeration (*ghuluww*) and negligence.  
+
+
+---
+Back: [[Aqeedah Level 1]]
