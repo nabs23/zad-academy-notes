@@ -1,4 +1,4 @@
-Back: [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[His Children]]
 
 ## **His Wives (ﷺ)**
 
@@ -49,4 +49,4 @@ Here is a list of his wives after Khadijah (RA):
 
 ---
 
-Back: [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[His Children]]

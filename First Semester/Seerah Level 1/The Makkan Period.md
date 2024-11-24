@@ -1,4 +1,4 @@
-Back: [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[Types of Revelation]]
 
 ## **The Makkan Period (ﷺ)**
 
@@ -90,4 +90,4 @@ Each period had unique stages and challenges that defined the mission.
 
 ---
 
-Back: [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[Types of Revelation]]

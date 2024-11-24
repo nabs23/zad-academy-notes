@@ -1,4 +1,4 @@
-Back: [[Seerah Level 1]]  
+Back: [[Seerah Level 1]] | Next: [[His Upbringing]]
 
 ## **His Wetnurses (ﷺ)**
 
@@ -17,4 +17,4 @@ Back: [[Seerah Level 1]]
 
 ---
 
-Back: [[Seerah Level 1]]  
+Back: [[Seerah Level 1]] | Next: [[His Upbringing]]

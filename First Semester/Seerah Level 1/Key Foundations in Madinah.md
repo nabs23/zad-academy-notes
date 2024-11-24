@@ -1,4 +1,4 @@
-Back: [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[Expeditions and Campaigns Before Badr]]
 
 ## **Key Foundations in Madinah**
 
@@ -55,4 +55,4 @@ Back: [[Seerah Level 1]]
 
 ---
 
-Back: [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[Expeditions and Campaigns Before Badr]]

@@ -1,4 +1,4 @@
-Back: [[Hadith Level 1]]
+Back: [[Hadith Level 1]] | Next: [[Hadith 9 - The Creation of One of You]]
 
 ## Text of the Hadith
 > It was narrated that Ali رضي الله عنه said:  
@@ -69,4 +69,4 @@ Back: [[Hadith Level 1]]
 
 ---
 
-Back: [[Hadith Level 1]]
+Back: [[Hadith Level 1]] | Next: [[Hadith 9 - The Creation of One of You]]

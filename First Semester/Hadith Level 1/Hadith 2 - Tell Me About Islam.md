@@ -1,4 +1,4 @@
-Back: [[Hadith Level 1]]
+Back: [[Hadith Level 1]] | Next: [[Hadith 3 - Actions are According to Intentions]]
 
 ## Text of the Hadith
 > It was narrated that Umar ibn al-Khattab رضي الله عنه said:  
@@ -129,3 +129,5 @@ Back: [[Hadith Level 1]]
   - **I**hsan (Worship as if seeing Allah).  
   - **P**roof of the signs of the Hour.  
   - **Q**adr (Belief in divine decree).
+
+Back: [[Hadith Level 1]] | Next: [[Hadith 3 - Actions are According to Intentions]]

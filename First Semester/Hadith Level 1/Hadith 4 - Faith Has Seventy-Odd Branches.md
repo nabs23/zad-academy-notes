@@ -1,3 +1,4 @@
+Back: [[Hadith Level 1]] | Next: [[Hadith 5 - I Have Only Been Sent to Perfect Noble Manners]]
 
 > It was narrated that Abu Hurayrah رضي الله عنه said:  
 > *"The Messenger of Allah ﷺ said: 'Faith has sixty-odd, or seventy-odd, branches, the highest of which is bearing witness that there is no god worthy of worship except Allah, and the lowest of which is removing a harmful thing from the road. And hayaa (modesty, shyness) is a branch of faith.' "*  
@@ -96,3 +97,5 @@
 ### Final Notes
 - Faith is dynamic, encompassing beliefs, actions, and attitudes.  
 - Strive to grow in iman by practicing both major and minor aspects of faith consistently.  
+
+Back: [[Hadith Level 1]] | Next: [[Hadith 5 - I Have Only Been Sent to Perfect Noble Manners]]

@@ -1,4 +1,4 @@
-Back: [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[His Wives]]
 
 ## **The Prophet’s Marriage to Khadijah (RA)**
 
@@ -43,4 +43,4 @@ Back: [[Seerah Level 1]]
 
 ---
 
-Back: [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[His Wives]]

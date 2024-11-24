@@ -1,4 +1,4 @@
-Back: [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[Key Highlights of the Madinan Period]]
 
 ### **A. Departure from Makkah**  
 - The Prophet ﷺ was given divine permission to leave Makkah and migrate to Madinah.  
@@ -37,4 +37,4 @@ Back: [[Seerah Level 1]]
 
 ---
 
-Back: [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[Key Highlights of the Madinan Period]]

@@ -1,5 +1,4 @@
-Back: [[Seerah Level 1]]
-
+Back: [[Seerah Level 1]] | Next: [[Hijrah to Madinah]]
 ### **A. The First Pledge of Al-Aqabah**  
 - **When**: In the **12th Year of Prophethood** during the Hajj season.  
 - **Who**:  
@@ -41,4 +40,4 @@ Back: [[Seerah Level 1]]
 
 ---
 
-Back: [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[Hijrah to Madinah]]

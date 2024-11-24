@@ -1,4 +1,4 @@
-Back: [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[The Prophet's Marriage to Khadijah]]
 
 ## **His Upbringing (ﷺ)**
 
@@ -58,4 +58,4 @@ This miraculous event happened **twice**:
 
 ---
 
-Back: [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[The Prophet's Marriage to Khadijah]]

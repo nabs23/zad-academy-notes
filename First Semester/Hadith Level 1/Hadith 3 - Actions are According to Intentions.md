@@ -1,3 +1,4 @@
+Back: [[Hadith Level 1]] | Next: [[Hadith 4 - Faith Has Seventy-Odd Branches]]
 ## Text of the Hadith
 > It was narrated that Umar ibn al-Khattab رضي الله عنه said:  
 > *"I heard the Messenger of Allah ﷺ say: 'Actions are according to intentions, and every man will have only that which he intended. Thus he whose migration was for Allah and His Messenger, his migration was for Allah and His Messenger. And he whose migration was to achieve some worldly benefit or to take some woman in marriage, his migration was for that for which he migrated.' "*  
@@ -83,3 +84,5 @@
 ### Final Notes
 - This hadith teaches Muslims to prioritize **sincerity** in every aspect of life.  
 - Reflect on your **intentions** regularly to ensure they align with seeking Allah’s pleasure.  
+
+Back: [[Hadith Level 1]] | Next: [[Hadith 4 - Faith Has Seventy-Odd Branches]]

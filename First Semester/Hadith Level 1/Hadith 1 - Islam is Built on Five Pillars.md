@@ -1,4 +1,4 @@
-Key Back: [[Hadith Level 1]]
+Back: [[Hadith Level 1]] | Next: [[Hadith 2 - Tell Me About Islam]]
 
 ## Text of the Hadith
 > It was narrated from Ibn Umar رضي الله عنهما that the Prophet ﷺ said  
@@ -96,3 +96,6 @@ Key Back: [[Hadith Level 1]]
 ### Final Notes
 - The hadith emphasizes both individual responsibility (for example, performing prayer) and communal responsibility (for example, paying zakat)  
 - Reflect on the balance of these acts and their significance in maintaining one’s faith  
+
+
+Back: [[Hadith Level 1]] | Next: [[Hadith 2 - Tell Me About Islam]]

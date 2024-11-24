@@ -1,3 +1,5 @@
+Back: [[Hadith Level 1]] | Next: [[Hadith 6 - You Are Going to Some of the People of the Book]]
+
 
 > It was narrated that Abu Hurayrah رضي الله عنه said:  
 > *"The Messenger of Allah ﷺ said: 'I have only been sent to perfect noble manners and characteristics.' "*  
@@ -96,3 +98,6 @@
 ### Final Notes
 - Good manners are central to Islamic teachings and reflect one’s faith and relationship with Allah.  
 - Strive to improve your character by following the example of the Prophet ﷺ and internalizing Quranic teachings.
+
+
+Back: [[Hadith Level 1]] | Next: [[Hadith 6 - You Are Going to Some of the People of the Book]]

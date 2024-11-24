@@ -1,4 +1,4 @@
-Back: [[Hadith Level 1]]
+Back: [[Hadith Level 1]] | Next: [[Hadith 11 - Do Not Go To Extremes In Praising Me]]
 
 ## Text of the Hadith
 > It was narrated that Abu Hurayrah رضي الله عنه said:  
@@ -61,4 +61,4 @@ Back: [[Hadith Level 1]]
 
 ---
 
-Back: [[Hadith Level 1]]
+Back: [[Hadith Level 1]] | Next: [[Hadith 11 - Do Not Go To Extremes In Praising Me]]

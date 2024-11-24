@@ -1,3 +1,5 @@
+Back: [[Hadith Level 1]] | Next: [[Hadith 8 - Keep Striving, for Everyone Will Be Enabled]]
+
 ## Text of the Hadith
 > It was narrated that Abu Hurayrah رضي الله عنه said:  
 > *"The Messenger of Allah ﷺ said: 'The Shaytan comes to one of you and says: Who created such and such? Who created such and such? Until he says: Who created your Lord? If he goes that far, let him seek refuge with Allah and stop these thoughts.' "*  
@@ -91,3 +93,6 @@
 ### Final Notes
 - This hadith teaches a practical method for dealing with intrusive doubts while highlighting the Shaytan’s limited power over believers.  
 - Strengthen your belief by frequently seeking refuge in Allah, reciting Quran, and affirming your faith. 
+
+
+Back: [[Hadith Level 1]] | Next: [[Hadith 8 - Keep Striving, for Everyone Will Be Enabled]]

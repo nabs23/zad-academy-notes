@@ -1,4 +1,4 @@
-Back: [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[The Battle of Badr]]
 ### **1. Key Battles and Campaigns**  
 - **2 AH**: The Battle of **Badr**.  
 - **3 AH**: The Battle of **Uhud**.  
@@ -11,4 +11,4 @@ Back: [[Seerah Level 1]]
   3. The Campaign of **Hunayn**.  
 - **9 AH**: The Campaign of **Tabuk (Campaign of Hardship)**.  
 
-Back: [[Seerah Level 1]]  
+Back: [[Seerah Level 1]] | Next: [[The Battle of Badr]]

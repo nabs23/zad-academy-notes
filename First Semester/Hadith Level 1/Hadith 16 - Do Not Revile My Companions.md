@@ -1,4 +1,4 @@
-Back: [[Hadith Level 1]]
+Back: [[Hadith Level 1]] | Next: [[Hadith 17 - There Are Three Characteristics]]
 
 ## Text of the Hadith  
 > It was narrated that Abu Hurayrah رضي الله عنه said: The Messenger of Allah ﷺ said:  
@@ -79,4 +79,4 @@ Back: [[Hadith Level 1]]
 
 ---
 
-Back: [[Hadith Level 1]]
+Back: [[Hadith Level 1]] | Next: [[Hadith 17 - There Are Three Characteristics]]

@@ -1,4 +1,4 @@
-Back: [[Hadith Level 1]]
+Back: [[Hadith Level 1]] | Next: [[Hadith 12 - If I Were to Take a Khaleel (Close Intimate Friend)]]
 
 ## Text of the Hadith
 > It was narrated from Ibn Abbas رضي الله عنهما that he heard Umar رضي الله عنه saying on the minbar:  
@@ -41,4 +41,4 @@ Back: [[Hadith Level 1]]
 
 ---
 
-Back: [[Hadith Level 1]]
+Back: [[Hadith Level 1]] | Next: [[Hadith 12 - If I Were to Take a Khaleel (Close Intimate Friend)]]

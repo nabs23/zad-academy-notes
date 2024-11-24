@@ -24,22 +24,22 @@ Back: [[Semester 1 Notes]]
 - **[[Hadith 8 - Keep Striving, for Everyone Will Be Enabled]]**  
     Emphasis on continuous effort in worship and obedience, with trust in Allah’s facilitation.
     
-- **[[Hadith 9 - The Creation of One of You is Put Together in His Mother’s Womb]]**  
+- **[[Hadith 9 - The Creation of One of You]]**  
     The stages of human creation and the decree of Allah regarding provision, deeds, and ultimate fate.
     
 - **[[Hadith 10 - The Strong Believer is Better]]**  
     The virtues of strength in faith and character, along with reliance on Allah and contentment with His decree.
     
-- **[[Hadith 11 - Do Not Go to Extremes in Praising Me]]**  
+- **[[Hadith 11 - Do Not Go To Extremes In Praising Me]]**  
     The prohibition of excessive praise for the Prophet ﷺ, emphasizing his servitude to Allah.
     
 - **[[Hadith 12 - If I Were to Take a Khaleel (Close Intimate Friend)]]**  
     The exclusive bond of love between Allah and the Prophet ﷺ, and the prohibition of worshipping graves.
     
-- **[[Hadith 13 - I Know That You Are Only a Stone]]**  
+- **[[Hadith 13 - I Know that You Are Only A Stone]]**  
     Umar رضي الله عنه’s example of following the Sunnah purely for obedience to Allah.
     
-- **[[Hadith 14 - Allah Forbids You to Swear by Your Fathers]]**  
+- **[[Hadith 14 - Allah Forbids You To Swear By Your Fathers]]**  
     Prohibition of swearing by anything other than Allah, as it constitutes shirk or improper veneration.
     
 - **[[Hadith 15 - You Will Be With Those Whom You Love]]**  

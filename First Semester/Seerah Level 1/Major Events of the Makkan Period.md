@@ -1,4 +1,4 @@
-Back: [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[Preparations for Hijrah]]
 
 ### **A. The Migrations to Abyssinia**  
 1. **First Migration**:  
@@ -80,4 +80,4 @@ Back: [[Seerah Level 1]]
 
 ---
 
-Back: [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[Preparations for Hijrah]]

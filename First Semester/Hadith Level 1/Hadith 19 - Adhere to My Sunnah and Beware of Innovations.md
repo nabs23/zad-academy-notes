@@ -1,3 +1,5 @@
+Back: [[Hadith Level 1]] | Next: [[Hadith 20 - The Straight Path and the Danger of Deviations]]
+
 ### Text of the Hadith
 > It was narrated that Abu Najeeh al-Irbad ibn Sariyah as-Sulami (رضي الله عنه) said:  
 > *The Messenger of Allah (ﷺ) exhorted us, and our hearts trembled and tears flowed from our eyes. We said: ‘O Messenger of Allah, it is as if this is the exhortation of one who is bidding farewell, so instruct us.’ He said: "I instruct you to fear Allah (ﷻ), and to hear and obey, even if the one who is appointed as your leader is a slave. Those among you who live a long life will see great differences. I urge you to adhere to my Sunnah and the way of the rightly-guided, right-thinking caliphs; adhere firmly to it. Beware of newly invented matters, for every newly invented matter is an innovation, and every innovation is misguidance."*  
@@ -89,3 +91,5 @@
 
 ### Conclusion
 This hadith emphasizes **taqwa**, obedience to leadership, adherence to the Sunnah, and avoiding innovations in religion. It serves as a timeless reminder to stay firmly grounded in authentic Islamic teachings, especially during times of division or confusion.
+
+Back: [[Hadith Level 1]] | Next: [[Hadith 20 - The Straight Path and the Danger of Deviations]]

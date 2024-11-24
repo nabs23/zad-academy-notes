@@ -1,4 +1,4 @@
-Back: [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[Key Foundations in Madinah]]
 
 ## **7. Key Highlights of the Madinan Period (Introduction)**  
 
@@ -21,4 +21,4 @@ Back: [[Seerah Level 1]]
 
 ---
 
-Back: [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[Key Foundations in Madinah]]

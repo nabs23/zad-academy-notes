@@ -1,4 +1,4 @@
-Back: [[Hadith Level 1]]
+Back: [[Hadith Level 1]] | Next: [[Hadith 14 - Allah Forbids You To Swear By Your Fathers]]
 
 ## Text of the Hadith
 > It was narrated from Umar رضي الله عنه that he came to the Black Stone and kissed it, then he said:  
@@ -38,4 +38,4 @@ Back: [[Hadith Level 1]]
 
 ---
 
-Back: [[Hadith Level 1]]
+Back: [[Hadith Level 1]] | Next: [[Hadith 14 - Allah Forbids You To Swear By Your Fathers]]

@@ -1,4 +1,4 @@
-Back [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[His Wetnurses]]
 ## **His Birth (ﷺ)**
 
 1. **Date of Birth**  
@@ -22,4 +22,4 @@ Back [[Seerah Level 1]]
 
 ---
 
-Back [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[His Wetnurses]]

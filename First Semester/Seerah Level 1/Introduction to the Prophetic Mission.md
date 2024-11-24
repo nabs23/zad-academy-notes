@@ -1,4 +1,4 @@
-Back: [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[The Makkan Period (note revision)]]
 
 The life of the Prophet ﷺ after prophethood is divided into two major periods:  
 
@@ -22,4 +22,4 @@ The life of the Prophet ﷺ after prophethood is divided into two major periods:
 
 ---
 
-Back: [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[The Makkan Period (note revision)]]

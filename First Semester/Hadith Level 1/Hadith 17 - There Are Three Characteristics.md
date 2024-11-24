@@ -1,4 +1,4 @@
-Back: [[Hadith Level 1]]
+Back: [[Hadith Level 1]] | Next: [[Hadith 18 - Whoever Introduces Into This Matter of Ours]]
 
 ## Text of the Hadith  
 It was narrated from Anas ibn Malik رضي الله عنه that the Prophet ﷺ said:  
@@ -88,4 +88,4 @@ It was narrated from Anas ibn Malik رضي الله عنه that the Prophet ﷺ 
 
 ---
 
-Back: [[Hadith Level 1]]
+Back: [[Hadith Level 1]] | Next: [[Hadith 18 - Whoever Introduces Into This Matter of Ours]]

@@ -1,4 +1,4 @@
-Back: [[Hadith Level 1]]
+Back: [[Hadith Level 1]] | Next: [[Hadith 16 - Do Not Revile My Companions]]
 
 ## Text of the Hadith  
 > It was narrated from Anas رضي الله عنه that a man asked the Prophet ﷺ about the Hour, saying:  
@@ -78,4 +78,4 @@ Back: [[Hadith Level 1]]
 
 ---
 
-Back: [[Hadith Level 1]]
+Back: [[Hadith Level 1]] | Next: [[Hadith 17 - There Are Three Characteristics]]

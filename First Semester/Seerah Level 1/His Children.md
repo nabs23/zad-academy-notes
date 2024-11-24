@@ -1,4 +1,4 @@
-Back: [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[Introduction to the Prophetic Mission]]
 
 ## **His Children (ﷺ)**
 
@@ -45,4 +45,4 @@ The Prophet ﷺ had **seven children**, of whom **three were sons** and **four w
 
 ---
 
-Back: [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[Introduction to the Prophetic Mission]]

@@ -1,4 +1,4 @@
-Back: [[Hadith Level 1]]
+Back: [[Hadith Level 1]] | Next: [[Hadith 13 - I Know that You Are Only A Stone]]
 
 ## Text of the Hadith
 
@@ -53,6 +53,4 @@ Back: [[Hadith Level 1]]
 
 ---
 
-Back: [[Hadith Level 1]]
-
----
+Back: [[Hadith Level 1]] | Next: [[Hadith 13 - I Know that You Are Only A Stone]]

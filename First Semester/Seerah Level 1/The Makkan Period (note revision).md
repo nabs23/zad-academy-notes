@@ -1,4 +1,4 @@
-Back: [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[The Stages of Da'wah (Call to Islam)]]
 
 ### **A. Allah’s Protection of the Prophet ﷺ Before the Mission Began**  
 1. **Born into the Noblest Lineage**  
@@ -51,4 +51,4 @@ Back: [[Seerah Level 1]]
 
 ---
 
-Back: [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[Major Events of the Makkan Period]]

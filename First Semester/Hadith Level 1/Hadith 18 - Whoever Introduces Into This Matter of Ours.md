@@ -1,4 +1,4 @@
-Back: [[Hadith Level 1]]
+Back: [[Hadith Level 1]] | Next: [[Hadith 19 - Adhere to My Sunnah and Beware of Innovations]]
 
 ## Text of the Hadith  
 It was narrated that Aisha رضي الله عنها said:  
@@ -98,4 +98,4 @@ According to another narration in Muslim:
 
 ---
 
-Back: [[Hadith Level 1]]
+Back: [[Hadith Level 1]] | Next: [[Hadith 19 - Adhere to My Sunnah and Beware of Innovations]]

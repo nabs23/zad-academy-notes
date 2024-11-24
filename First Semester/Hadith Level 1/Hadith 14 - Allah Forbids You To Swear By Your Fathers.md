@@ -1,4 +1,4 @@
-Back: [[Hadith Level 1]]
+Back: [[Hadith Level 1]] | Next: [[Hadith 15 - You Will Be With Those Whom You Love]]
 
 ## Text of the Hadith  
 > It was narrated from Abdullah ibn Umar رضي الله عنه that the Messenger of Allah ﷺ caught up with Umar ibn al-Khattab رضي الله عنه as he was traveling with other riders and swearing by his father. The Prophet ﷺ said:  
@@ -41,4 +41,4 @@ Back: [[Hadith Level 1]]
 
 ---
 
-Back: [[Hadith Level 1]]
+Back: [[Hadith Level 1]] | Next: [[Hadith 15 - You Will Be With Those Whom You Love]]
