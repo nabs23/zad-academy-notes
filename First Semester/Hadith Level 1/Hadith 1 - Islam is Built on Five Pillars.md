@@ -1,4 +1,4 @@
-Back: [[Hadith Level 1]]
+Key Back: [[Hadith Level 1]]
 
 ## Text of the Hadith
 > It was narrated from Ibn Umar رضي الله عنهما that the Prophet ﷺ said  

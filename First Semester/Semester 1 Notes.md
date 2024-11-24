@@ -1,6 +1,6 @@
 - [[Aqeedah Level 1]] Shaykh Ahmad al-Romh
 - [[Fiqh Level 1]] Shaykh Assim ibn Luqman al-Hakeem
 - [[Hadith Level 1]] Shaykh Dr. Muhammad Salah
-- [[Seerah 1]] Shaykh Assim ibn Luqman al-Hakeem
+- [[Seerah Level 1]] Shaykh Assim ibn Luqman al-Hakeem
 - [[Tafsir Level 1]] Shaykh Dr. Ahmad ibn Saifuddin
 - [[Tarbiyah Islamiyah 1]] Shaykh Ibrahim Zidan

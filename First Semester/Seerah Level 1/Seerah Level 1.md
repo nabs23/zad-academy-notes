@@ -1,0 +1,34 @@
+- [[Unit 1 - The Importance of the Seerah]]
+- Unit 2 - The Prophet Muhammad
+	- [[His Lineage]]
+	- [[His Birth]]
+	- [[His Wetnurses]]
+	- [[His Upbringing]]
+- Unit 3 - His Wives and Children
+	- [[The Prophet's Marrage to Khadijah]]
+	- [[His Wives]]
+	- [[His Children]]
+- Unit 4 - The Prophet's Missions
+	- [[Introduction to the Prophetic Mission]]
+	- [[The Makkan Period (note revision)]]
+	- [[The Stages of Da'wah (Call to Islam)]]
+	- [[Major Events of the Makkan Period]]
+	- [[Preparations for Hijrah]]
+	- [[Hijrah to Madinah]]
+	- [[Key Highlights of the Madinan Period]]
+	- First Notes Taken following the e-Book format
+		- [[The Makkan Period]]
+		- [[Types of Revelation]]
+		- [[The Stages of the Call (Da’wah)]]
+		- [[Leading to Hijrah]]
+	- [[Unit 4 Summary]]
+- Unit 5 - The Prophet in Madinah
+	- [[Key Foundation in Madinah]]
+	- [[Expeditions and Campaigns Before Badr]]
+	- [[Major Campaigns and the Treaty of Al-Hudaybiyah]]
+	- [[The Battle of Badr]]
+	- [[The Battle of Uhud]]
+	- [[The Battle of Al-Khandaq (The Trench) or Al-Ahzab (The Confederates)]]
+	- [[The Treaty of Al-Hudaybiyah]]
+	- [[Bay‘at ar-Ridwan and the Treaty of Hudaybiyah]]
+	- 
