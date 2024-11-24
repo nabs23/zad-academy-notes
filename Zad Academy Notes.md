@@ -55,4 +55,20 @@ _"O Allah! Benefit me with what You have taught me, teach me that which will ben
 
 ---
 
+## 📤 **Share This Vault**
+
+You can access and share this repository using the following resources:
+
+- **GitHub Repository:** [Visit the Repository](https://github.com/nabs23/zad-academy-notes)  
+    Explore, contribute, or download the latest version of these notes directly from GitHub.
+    
+- **Direct Download:** [Download the Notes](https://github.com/nabs23/zad-academy-notes/archive/refs/heads/main.zip)  
+    Get the entire collection in a convenient zip file for offline use.
+    
+- **Get Obsidian:** [Download Obsidian](https://obsidian.md/download)  
+    Optimize your learning experience by using Obsidian, a powerful and flexible note-taking application.
+
+
+---
+
 May Allah guide us and grant us success in our studies. 🌟 **Bismillah**, let’s begin!
