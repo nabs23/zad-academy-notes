@@ -2,8 +2,8 @@
 - [[The Rights of the Prophet Muhammad (ﷺ) Over His Ummah]]
 - [[The Rights of the Sahabah (Companions of the Prophet ﷺ)]]
 - [[The Rights of the Scholars]]
-- The Rights of the Parents
-- The Rights of Children Over Their Parents
+- [[The Rights of Parents]]
+- [[The Rights of Children Over Their Parents]]
 - The Rights of the Spouses
 - The Rights of the Wife Over Her Husband
 - The Rights of the Relatives
