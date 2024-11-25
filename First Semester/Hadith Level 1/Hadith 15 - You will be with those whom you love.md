@@ -1,17 +1,17 @@
 Back: [[Hadith Level 1]] | Next: [[Hadith 16 - Do not revile my Companions]]
 
 ## Text of the Hadith  
-> It was narrated from Anas رضي الله عنه that a man asked the Prophet ﷺ about the Hour, saying:  
-> *“When will the Hour be?”*  
-> He ﷺ replied:  
-> *“What have you prepared for it?”*  
-> The man said: *“Nothing, except that I love Allah and His Messenger ﷺ.”*  
-> The Prophet ﷺ said:  
-> *“You will be with those whom you love.”*  
->  
-> Anas said:  
-> *“We did not rejoice over anything as much as we rejoiced over the Prophet’s saying: ‘You will be with those whom you love.’ I love the Prophet ﷺ, Abu Bakr and Umar, and I hope that I will be with them by virtue of my love for them, even if my deeds are not like their deeds.”*  
-> *(Agreed upon)*  
+It was narrated from Anas رضي الله عنه that a man asked the Prophet ﷺ about the Hour, saying:  
+*“When will the Hour be?”*  
+He ﷺ replied:  
+*“What have you prepared for it?”*  
+The man said: *“Nothing, except that I love Allah and His Messenger ﷺ.”*  
+The Prophet ﷺ said:  
+*“You will be with those whom you love.”*  
+ 
+Anas said:  
+*“We did not rejoice over anything as much as we rejoiced over the Prophet’s saying: ‘You will be with those whom you love.’ I love the Prophet ﷺ, Abu Bakr and Umar, and I hope that I will be with them by virtue of my love for them, even if my deeds are not like their deeds.”*  
+*(Agreed upon)*  
 
 ---
 

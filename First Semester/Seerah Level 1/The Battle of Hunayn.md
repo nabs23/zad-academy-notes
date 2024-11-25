@@ -34,7 +34,7 @@ Back: [[Seerah Level 1]] | Next: [[The Campaign of Tabuk (The Campaign of Hardsh
 2. **The Prophet ﷺ’s Leadership**:  
    - Despite the chaos, the Prophet ﷺ remained steadfast.  
    - He called out:  
-     > “I am the Prophet and no lie! I am the son of Abd al-Muttalib!”  
+     “I am the Prophet and no lie! I am the son of Abd al-Muttalib!”  
    - He ordered **al-Abbas** (RA) to summon the **Ansar** and **Muhajireen**, who regrouped and returned to the fight.  
 
 3. **Regrouping and Victory**:  
@@ -43,7 +43,7 @@ Back: [[Seerah Level 1]] | Next: [[The Campaign of Tabuk (The Campaign of Hardsh
 
 4. **Prophetic Miracle**:  
    - The Prophet ﷺ threw **pebbles** at the enemy and said:  
-     > “They are defeated, by the Lord of Muhammad.”  
+     “They are defeated, by the Lord of Muhammad.”  
    - This act caused the enemy to lose their strength and resolve, leading to their humiliation.  
 
 ---

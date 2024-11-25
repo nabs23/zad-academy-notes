@@ -1,9 +1,9 @@
 Back: [[Hadith Level 1]] | Next: [[Hadith 7 - The Shaytan Comes to One of You]]
 
 ## Text of the Hadith
-> It was narrated from Ibn Abbas رضي الله عنهما that Muadh رضي الله عنه said:  
-> *"The Messenger of Allah ﷺ sent me and said: 'You are going to some of the People of the Book. Call them to bear witness that there is no god worthy of worship except Allah and that I am the Messenger of Allah. If they comply with that, then tell them that Allah has enjoined on them five prayers to be offered every day and night. If they comply with that, then tell them that Allah has enjoined on them charity (zakat) to be taken from their rich and given to their poor. If they comply with that, then beware of taking the best of their wealth, and fear the supplication of the one who has been wronged, for there is no barrier between it and Allah.' "*  
-> *(Narrated by Muslim)*  
+It was narrated from Ibn Abbas رضي الله عنهما that Muadh رضي الله عنه said:  
+*"The Messenger of Allah ﷺ sent me and said: 'You are going to some of the People of the Book. Call them to bear witness that there is no god worthy of worship except Allah and that I am the Messenger of Allah. If they comply with that, then tell them that Allah has enjoined on them five prayers to be offered every day and night. If they comply with that, then tell them that Allah has enjoined on them charity (zakat) to be taken from their rich and given to their poor. If they comply with that, then beware of taking the best of their wealth, and fear the supplication of the one who has been wronged, for there is no barrier between it and Allah.' "*  
+*(Narrated by Muslim)*  
 
 ---
 

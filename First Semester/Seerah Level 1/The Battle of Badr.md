@@ -20,9 +20,9 @@ Back: [[Seerah Level 1]] | Next: [[The Battle of Uhud]]
 
 3. **Muslim Morale**:  
    - The Prophet ﷺ encouraged his companions with Allah’s promise:  
-     > **“[Remember, O believers], when Allah promised you one of the two groups – that it would be yours...”** (*Surah Al-Anfal 8:7*).  
+     **“[Remember, O believers], when Allah promised you one of the two groups – that it would be yours...”** (*Surah Al-Anfal 8:7*).  
    - **Al-Miqdad ibn al-Aswad (RA)** affirmed support:  
-     > "We will not say to you what the Children of Israel said to Musa: *Go, you and your Lord, and fight*..."  
+     "We will not say to you what the Children of Israel said to Musa: *Go, you and your Lord, and fight*..."  
 
 4. **The Battle Begins**:  
    - Muslims filled the well at **Badr** to deny water to Quraysh.  
@@ -31,7 +31,7 @@ Back: [[Seerah Level 1]] | Next: [[The Battle of Uhud]]
 
 5. **Victory with Allah’s Aid**:  
    - Allah sent **angels** to assist the Muslims:  
-     > **“Your Lord will reinforce you with five thousand angels having marks [of distinction].”** (*Surah Aal ‘Imran 3:125*).  
+     **“Your Lord will reinforce you with five thousand angels having marks [of distinction].”** (*Surah Aal ‘Imran 3:125*).  
    - **Outcome**:  
      - **70 Quraysh killed**, including leaders like **Abu Jahl**.  
      - **70 captives** taken by Muslims.  

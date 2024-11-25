@@ -23,7 +23,7 @@ Back: [[Seerah Level 1]] | Next: [[The Campaign of Mu’tah]]
 
 ### **Quranic Revelation**  
 - Allah revealed the following verses concerning this ‘Umrah:  
-  > **"Certainly has Allah showed to His Messenger the vision in truth. You will surely enter al-Masjid al-Haram, if Allah wills, in safety, with your heads shaved and [hair] shortened, not fearing [anyone]."** (*Surah Al-Fath 48:27*)  
+  **"Certainly has Allah showed to His Messenger the vision in truth. You will surely enter al-Masjid al-Haram, if Allah wills, in safety, with your heads shaved and [hair] shortened, not fearing [anyone]."** (*Surah Al-Fath 48:27*)  
 - These verses confirmed the **Prophet's ﷺ vision** of entering Makkah and symbolized **Allah’s promise of victory**.  
 
 ---

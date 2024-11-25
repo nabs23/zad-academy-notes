@@ -44,9 +44,9 @@ Back: [[Tafsir Level 1]]
 7. **[You are our protector, so give us victory over the disbelieving people...]**  
    - **Wilayah of Allah**:  
      - **Specific Wilayah**: Allah’s care and protection for the believers.  
-       > *[Allah is the ally (wali) of those who believe. He brings them out from darkness into light.]* [2:257]  
+       *[Allah is the ally (wali) of those who believe. He brings them out from darkness into light.]* [2:257]  
      - **General Wilayah**: Allah’s care for all creation.  
-       > *[And they will be returned to Allah, their master (mawlahum), the Truth...]* [10:30]  
+       *[And they will be returned to Allah, their master (mawlahum), the Truth...]* [10:30]  
    - A dua for help against those who reject faith, symbolizing reliance on Allah alone.  
 
 ---

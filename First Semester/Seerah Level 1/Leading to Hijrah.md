@@ -10,7 +10,7 @@ Back: [[Seerah Level 1]]
 
 #### **The Prophet’s Response**  
 - Despite the harm, when Jibreel (AS) offered to destroy the people of Ta’if, the Prophet ﷺ replied:  
-  > “I hope that Allah will bring forth from their descendants people who will worship Allah alone, not associating anything with Him.”
+  “I hope that Allah will bring forth from their descendants people who will worship Allah alone, not associating anything with Him.”
 
 ---
 
@@ -62,7 +62,7 @@ Back: [[Seerah Level 1]]
 - Allah informed the Prophet ﷺ of their plan and permitted him to migrate.  
 - The Prophet ﷺ instructed **Ali ibn Abi Talib (RA)** to sleep in his bed, assuring him of safety.  
 - He recited:  
-  > **“And We have put before them a barrier and behind them a barrier and covered them, so they do not see.”** (*Surah Yasin 36:9*)  
+  **“And We have put before them a barrier and behind them a barrier and covered them, so they do not see.”** (*Surah Yasin 36:9*)  
   - This blinded the Quraysh as the Prophet ﷺ left his house undetected.  
 
 ---

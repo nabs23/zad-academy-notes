@@ -2,9 +2,9 @@ Back: [[Hadith Level 1]] | Next: [[Hadith 13 - I know that you are only a stone]
 
 ## Text of the Hadith
 
-> It was narrated from Jundub ibn Abdullah ibn Sufyan al-Bajali رضي الله عنه that he said:  
-> _“I heard the Prophet ﷺ say five days before he died: ‘I deny before Allah that I have any khaleel (close, intimate friend) among you, for Allah has taken me as a khaleel as He took Ibrahim as a khaleel. If I were to take any khaleel from among my ummah, I would have taken Abu Bakr as a khaleel. Indeed, those who came before you used to take the graves of their prophets and righteous men as places of worship. Do not take graves as places of worship; I forbid you to do that.’”_  
-> _(Narrated by Muslim)_
+It was narrated from Jundub ibn Abdullah ibn Sufyan al-Bajali رضي الله عنه that he said:  
+_“I heard the Prophet ﷺ say five days before he died: ‘I deny before Allah that I have any khaleel (close, intimate friend) among you, for Allah has taken me as a khaleel as He took Ibrahim as a khaleel. If I were to take any khaleel from among my ummah, I would have taken Abu Bakr as a khaleel. Indeed, those who came before you used to take the graves of their prophets and righteous men as places of worship. Do not take graves as places of worship; I forbid you to do that.’”_  
+_(Narrated by Muslim)_
 
 ---
 

@@ -27,7 +27,7 @@ Back: [[Seerah Level 1]] | Next: [[Key Highlights of the Madinan Period]]
 1. **Warm Welcome**:  
    - The Muslims of Madinah eagerly awaited the Prophet ﷺ’s arrival.  
    - Upon seeing him, they welcomed him with **joy**, **takbeer**, and the famous lines:  
-     > “Tala’al-Badru ‘Alayna...” (The full moon has risen upon us).  
+     “Tala’al-Badru ‘Alayna...” (The full moon has risen upon us).  
 
 2. **Temporary Residence**:  
    - The Prophet ﷺ stayed with **Abu Ayyub al-Ansari (RA)**, as his home was closest to where the Prophet’s camel stopped.  

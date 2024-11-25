@@ -1,9 +1,9 @@
 Back: [[Hadith Level 1]] | Next: [[Hadith 6 - You Are Going to Some of the People of the Book]]
 
 
-> It was narrated that Abu Hurayrah رضي الله عنه said:  
-> *"The Messenger of Allah ﷺ said: 'I have only been sent to perfect noble manners and characteristics.' "*  
-> *(Narrated by al-Bazzar, Ahmad, and Malik; classified as sahih by al-Albani.)*  
+It was narrated that Abu Hurayrah رضي الله عنه said:  
+*"The Messenger of Allah ﷺ said: 'I have only been sent to perfect noble manners and characteristics.' "*  
+*(Narrated by al-Bazzar, Ahmad, and Malik; classified as sahih by al-Albani.)*  
 
 ---
 

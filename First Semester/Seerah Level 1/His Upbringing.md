@@ -28,7 +28,7 @@ This miraculous event happened **twice**:
 1. **The First Time**  
    - When the Prophet ﷺ was with his wetnurse, **Halimah**, in the desert of Banu Sa’d at the age of **4 years**.  
    - **Jibreel (AS)** opened his chest, removed a clot of blood, and said:  
-     > "This is the Shaytan's share of you."  
+     "This is the Shaytan's share of you."  
    - Jibreel washed his heart with Zamzam water and returned it.  
 
 2. **The Second Time**  
@@ -37,7 +37,7 @@ This miraculous event happened **twice**:
 - **Anas ibn Malik (RA)** reported:  
    - The children informed Halimah that "Muhammad has been killed!" but they found him unharmed.  
    - Anas (RA) said:  
-     > "I saw the marks of stitching on his chest."
+     "I saw the marks of stitching on his chest."
 
 ---
 

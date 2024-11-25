@@ -1,9 +1,9 @@
 Back: [[Hadith Level 1]] | Next: [[Hadith 2 - Tell Me About Islam]]
 
 ## Text of the Hadith
-> It was narrated from Ibn Umar رضي الله عنهما that the Prophet ﷺ said  
-> *"Islam is built on five: the testimony that there is no god worthy of worship except Allah and that Muhammad is the Messenger of Allah; establishing prayer; giving zakat; fasting Ramadan; and going on pilgrimage to the House."*  
-> *(Agreed upon)*
+It was narrated from Ibn Umar رضي الله عنهما that the Prophet ﷺ said  
+*"Islam is built on five: the testimony that there is no god worthy of worship except Allah and that Muhammad is the Messenger of Allah; establishing prayer; giving zakat; fasting Ramadan; and going on pilgrimage to the House."*  
+*(Agreed upon)*
 
 ---
 

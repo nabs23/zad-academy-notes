@@ -6,7 +6,7 @@ Back: [[Seerah Level 1]] | Next: [[The Death of the Prophet ﷺ]]
    - The Prophet ﷺ set out for Hajj after **combing his hair and applying perfume**.  
    - He stayed overnight at **Dhul-Hulayfah** and entered into **ihram** for **Hajj and Umrah together (Qiran)**.  
    - He said:  
-     > **“A messenger came to me last night from my Lord and said: ‘Pray in this blessed valley and say: Umrah together with Hajj.’”**  
+     **“A messenger came to me last night from my Lord and said: ‘Pray in this blessed valley and say: Umrah together with Hajj.’”**  
 
 2. **Arrival in Makkah**:  
    - Entered Makkah on a **Sunday morning**, performed **Tawaf al-Qudoom** (arrival tawaf), and **Sa‘i** between Safa and Marwah.  
@@ -24,7 +24,7 @@ Back: [[Seerah Level 1]] | Next: [[The Death of the Prophet ﷺ]]
      - Equality among Muslims and the concept of **taqwa** (piety).  
 
    - Prayed **Dhuhr and Asr** combined, supplicated until sunset, and recited:  
-     > **“Laa ilaaha illa Allah, wa Allahu Akbar.”**  
+     **“Laa ilaaha illa Allah, wa Allahu Akbar.”**  
 
 5. **Night in Muzdalifah**:  
    - Traveled after sunset to **Muzdalifah**, prayed **Maghrib and Isha** combined, stayed overnight, and prayed Fajr.  

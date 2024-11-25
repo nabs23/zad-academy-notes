@@ -1,9 +1,9 @@
 Back: [[Hadith Level 1]] | Next: [[Hadith 17 - There are three characteristics]]
 
 ## Text of the Hadith  
-> It was narrated that Abu Hurayrah رضي الله عنه said: The Messenger of Allah ﷺ said:  
-> *“Do not revile my Companions, do not revile my Companions. By the One in Whose hand is my soul, if one of you were to spend [in charity] the equivalent of Uhud in gold, he would not attain [the reward of] the mudd of one of them, or even half of that.”*  
-> *(Narrated by al-Bukhari and Muslim)*  
+It was narrated that Abu Hurayrah رضي الله عنه said: The Messenger of Allah ﷺ said:  
+*“Do not revile my Companions, do not revile my Companions. By the One in Whose hand is my soul, if one of you were to spend [in charity] the equivalent of Uhud in gold, he would not attain [the reward of] the mudd of one of them, or even half of that.”*  
+*(Narrated by al-Bukhari and Muslim)*  
 
 ---
 

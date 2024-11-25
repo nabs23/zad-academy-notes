@@ -1,9 +1,9 @@
 Back: [[Hadith Level 1]] | Next: [[Hadith 14 - Allah forbids you to swear by your fathers]]
 
 ## Text of the Hadith
-> It was narrated from Umar رضي الله عنه that he came to the Black Stone and kissed it, then he said:  
-> *"I know that you are only a stone, and you cannot cause harm or bring benefit. Were it not that I saw the Prophet ﷺ kiss you, I would not have kissed you."*  
-> *(Narrated by al-Bukhari)*  
+It was narrated from Umar رضي الله عنه that he came to the Black Stone and kissed it, then he said:  
+*"I know that you are only a stone, and you cannot cause harm or bring benefit. Were it not that I saw the Prophet ﷺ kiss you, I would not have kissed you."*  
+*(Narrated by al-Bukhari)*  
 
 ---
 

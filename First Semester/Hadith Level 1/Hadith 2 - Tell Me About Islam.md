@@ -1,30 +1,30 @@
 Back: [[Hadith Level 1]] | Next: [[Hadith 3 - Actions are According to Intentions]]
 
 ## Text of the Hadith
-> It was narrated that Umar ibn al-Khattab رضي الله عنه said:  
-> *"One day when we were with the Messenger of Allah ﷺ, there appeared before us a man whose clothes were exceedingly white and whose hair was exceedingly black, and there were no signs of travel on him. No one among us recognized him. He came and sat down before the Prophet ﷺ, rested his knees against his and placed the palms of his hands on his thighs, and said: 'O Muhammad, tell me about Islam.'*  
-> The Messenger of Allah ﷺ said:  
-> *'Islam is to testify that there is no god worthy of worship except Allah and that Muhammad is the Messenger of Allah, to establish regular prayer, to pay zakat, to fast Ramadan, and to go on pilgrimage to the House if you are able to.'*  
-> He said: *'You have spoken the truth.'*  
-> Then he said: *'Tell me about iman (faith).'*  
-> The Prophet ﷺ said:  
-> *'It means believing in Allah, His angels, His books, His messengers, the Last Day, and believing in al-qadr (divine will and decree), both good and bad.'*  
-> He said: *'You have spoken the truth.'*  
-> Then he said: *'Tell me about ihsan.'*  
-> The Prophet ﷺ said:  
-> *'It means worshipping Allah as if you can see Him, and although you cannot see Him, He can see you.'*  
-> Then he said: *'Tell me about the Hour.'*  
-> The Prophet ﷺ said:  
-> *'The one who is being asked does not know more about it than the one who is asking.'*  
-> He said: *'Tell me about its signs.'*  
-> The Prophet ﷺ said:  
-> *'The slave woman will give birth to her mistress, and you will see the barefoot, naked, destitute shepherds competing in constructing lofty buildings.'*  
-> Then he departed, and I stayed for a while. Then the Prophet ﷺ said to me:  
-> *'O Umar, do you know who the questioner was?'*  
-> I said: *'Allah and His Messenger know best.'*  
-> The Prophet ﷺ said:  
-> *'That was Jibreel, who came to teach you your religion.'*  
-> *(Narrated by Muslim)*
+It was narrated that Umar ibn al-Khattab رضي الله عنه said:  
+*"One day when we were with the Messenger of Allah ﷺ, there appeared before us a man whose clothes were exceedingly white and whose hair was exceedingly black, and there were no signs of travel on him. No one among us recognized him. He came and sat down before the Prophet ﷺ, rested his knees against his and placed the palms of his hands on his thighs, and said: 'O Muhammad, tell me about Islam.'*  
+The Messenger of Allah ﷺ said:  
+*'Islam is to testify that there is no god worthy of worship except Allah and that Muhammad is the Messenger of Allah, to establish regular prayer, to pay zakat, to fast Ramadan, and to go on pilgrimage to the House if you are able to.'*  
+He said: *'You have spoken the truth.'*  
+Then he said: *'Tell me about iman (faith).'*  
+The Prophet ﷺ said:  
+*'It means believing in Allah, His angels, His books, His messengers, the Last Day, and believing in al-qadr (divine will and decree), both good and bad.'*  
+He said: *'You have spoken the truth.'*  
+Then he said: *'Tell me about ihsan.'*  
+The Prophet ﷺ said:  
+*'It means worshipping Allah as if you can see Him, and although you cannot see Him, He can see you.'*  
+Then he said: *'Tell me about the Hour.'*  
+The Prophet ﷺ said:  
+*'The one who is being asked does not know more about it than the one who is asking.'*  
+He said: *'Tell me about its signs.'*  
+The Prophet ﷺ said:  
+*'The slave woman will give birth to her mistress, and you will see the barefoot, naked, destitute shepherds competing in constructing lofty buildings.'*  
+Then he departed, and I stayed for a while. Then the Prophet ﷺ said to me:  
+*'O Umar, do you know who the questioner was?'*  
+I said: *'Allah and His Messenger know best.'*  
+The Prophet ﷺ said:  
+*'That was Jibreel, who came to teach you your religion.'*  
+*(Narrated by Muslim)*
 
 ---
 

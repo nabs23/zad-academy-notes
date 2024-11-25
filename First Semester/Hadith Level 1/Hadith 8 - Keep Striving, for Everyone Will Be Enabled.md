@@ -1,8 +1,8 @@
 Back: [[Hadith Level 1]] | Next: [[Hadith 9 - The creation of one of you is put together in his mother’s womb]]
 
 ## Text of the Hadith
-> It was narrated that Ali رضي الله عنه said:  
-> *"The Prophet ﷺ was at a funeral. He picked up something and started to hit the ground with it and said: 'There is no one among you but his place in Hell or his place in Paradise is already decreed.' They said: 'O Messenger of Allah, then should we not rely on what is written for us and give up striving?' He said: 'Keep striving, for everyone will be enabled to do that for which he was created. As for the one who is among the blessed, he will be enabled to do the deeds of the blessed; as for the one who is among the doomed, he will be enabled to do the deeds of the doomed.' Then he recited the words: *'As for he who gives and fears Allah and believes in the best [reward], We will ease him toward ease.'* (Surah al-Layl 92:5-7)"*
+It was narrated that Ali رضي الله عنه said:  
+*"The Prophet ﷺ was at a funeral. He picked up something and started to hit the ground with it and said: 'There is no one among you but his place in Hell or his place in Paradise is already decreed.' They said: 'O Messenger of Allah, then should we not rely on what is written for us and give up striving?' He said: 'Keep striving, for everyone will be enabled to do that for which he was created. As for the one who is among the blessed, he will be enabled to do the deeds of the blessed; as for the one who is among the doomed, he will be enabled to do the deeds of the doomed.' Then he recited the words: *'As for he who gives and fears Allah and believes in the best [reward], We will ease him toward ease.'* (Surah al-Layl 92:5-7)"*
 
 ---
 

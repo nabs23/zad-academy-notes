@@ -6,7 +6,7 @@
 
 2. **Divine Recognition**:  
    - Allah revealed:  
-     > "Certainly was Allah pleased with the believers when they pledged allegiance to you, [O Muhammad], under the tree..." (*Surah Al-Fath 48:18*).  
+     "Certainly was Allah pleased with the believers when they pledged allegiance to you, [O Muhammad], under the tree..." (*Surah Al-Fath 48:18*).  
 
 ---
 
@@ -20,7 +20,7 @@
 #### **Muslims’ Reaction**:  
 - The terms appeared humiliating to many Muslims, including **Umar ibn al-Khattab (RA)**, who questioned their fairness.  
 - The Prophet ﷺ reassured:  
-  > "O son of al-Khattab, indeed I am the Messenger of Allah, and Allah will never forsake me."  
+  "O son of al-Khattab, indeed I am the Messenger of Allah, and Allah will never forsake me."  
 
 #### **Submission to Allah's Will**:  
 - The Muslims, recognizing it as Allah’s command, complied.  

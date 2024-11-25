@@ -1,17 +1,17 @@
 Back: [[Hadith Level 1]] | Next: [[Hadith 8 - Keep Striving, for Everyone Will Be Enabled]]
 
 ## Text of the Hadith
-> It was narrated that Abu Hurayrah رضي الله عنه said:  
-> *"The Messenger of Allah ﷺ said: 'The Shaytan comes to one of you and says: Who created such and such? Who created such and such? Until he says: Who created your Lord? If he goes that far, let him seek refuge with Allah and stop these thoughts.' "*  
-> *(Agreed upon)*  
->  
-> According to another version:  
-> *"People will keep asking questions until they say: This is Allah, the Creator of all things, but who created Allah?"*  
-> *(Musnad Ahmad, sahih isnad)*  
->  
-> In a similar report, the Prophet ﷺ said:  
-> *"If one of you experiences that, let him say: I believe in Allah and His Messengers, for that will take that thought away from his mind."*  
-> *(Abu Dawud, classified as hasan by al-Albani.)*  
+It was narrated that Abu Hurayrah رضي الله عنه said:  
+*"The Messenger of Allah ﷺ said: 'The Shaytan comes to one of you and says: Who created such and such? Who created such and such? Until he says: Who created your Lord? If he goes that far, let him seek refuge with Allah and stop these thoughts.' "*  
+*(Agreed upon)*  
+ 
+According to another version:  
+*"People will keep asking questions until they say: This is Allah, the Creator of all things, but who created Allah?"*  
+*(Musnad Ahmad, sahih isnad)*  
+ 
+In a similar report, the Prophet ﷺ said:  
+*"If one of you experiences that, let him say: I believe in Allah and His Messengers, for that will take that thought away from his mind."*  
+*(Abu Dawud, classified as hasan by al-Albani.)*  
 
 ---
 

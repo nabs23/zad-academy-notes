@@ -28,7 +28,7 @@ Back: [[Seerah Level 1]] | Next: [[Destruction of the Idols After the Conquest o
 1. **Date**: Morning of Friday, **20th Ramadan, 8 AH**.  
 2. The Muslim army entered Makkah peacefully, with minimal resistance.  
 3. The Prophet ﷺ recited the verse:  
-   > **“Indeed, We have given you, [O Muhammad], a clear conquest.”** (*Surah Al-Fath 48:1*).  
+   **“Indeed, We have given you, [O Muhammad], a clear conquest.”** (*Surah Al-Fath 48:1*).  
 4. The people of Makkah surrendered to the Muslims.
 
 ---
@@ -36,7 +36,7 @@ Back: [[Seerah Level 1]] | Next: [[Destruction of the Idols After the Conquest o
 ### **The Cleansing of the Kaaba**  
 1. **Destruction of Idols**:  
    - The Prophet ﷺ entered the **Haram**, pointing to the idols around the Kaaba and reciting the verse:  
-     > **“Truth has come, and falsehood has departed. Indeed, falsehood [by nature] is ever bound to depart.”** (*Surah Al-Isra 17:81*).  
+     **“Truth has come, and falsehood has departed. Indeed, falsehood [by nature] is ever bound to depart.”** (*Surah Al-Isra 17:81*).  
    - The idols were smashed, and the Kaaba was purified of all forms of shirk.  
 
 2. **Adhan**:  
@@ -48,7 +48,7 @@ Back: [[Seerah Level 1]] | Next: [[Destruction of the Idols After the Conquest o
 1. **A Peaceful Victory**:  
    - The conquest highlighted the Prophet’s ﷺ mercy, as he pardoned the Quraysh who had opposed him for years.  
    - He declared:  
-     > **“No blame will there be upon you today. May Allah forgive you; and He is the most merciful of the merciful.”** (*Surah Yusuf 12:92*).  
+     **“No blame will there be upon you today. May Allah forgive you; and He is the most merciful of the merciful.”** (*Surah Yusuf 12:92*).  
 
 2. **Consolidation of Islam**:  
    - The conquest marked the end of idol worship in Makkah and the widespread acceptance of Islam in Arabia.

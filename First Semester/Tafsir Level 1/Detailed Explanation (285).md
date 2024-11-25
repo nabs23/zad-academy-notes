@@ -9,11 +9,11 @@ Back: [[Tafsir Level 1]] | Next: [[Detailed Explanation]]
 
 2. **Belief in Allah's Lordship (Rububiyyah)**:  
    - **General Lordship**: Allah is the Creator and Sustainer of all creation.  
-     > *(Lord of the worlds)* [Al-Fatihah: 1].  
+     *(Lord of the worlds)* [Al-Fatihah: 1].  
    - **Specific Lordship**: Allah is the Sustainer of the believers specifically, guiding and caring for them.  
-     > *(Our Lord, give us in this world that which is good...)* [2:201].  
+     *(Our Lord, give us in this world that which is good...)* [2:201].  
    - **Most Specific Lordship**: Allah is the Lord and Sustainer of the Prophets.  
-     > *(The Lord of Moses and Aaron)* [7:122].  
+     *(The Lord of Moses and Aaron)* [7:122].  
 
 3. **[All of them have believed in Allah, His angels, His books, and His messengers...]**  
    - **Belief in Allah**: Includes belief in His existence, rububiyyah (lordship), uluhiyyah (divinity), and asma' wa sifat (names and attributes).  

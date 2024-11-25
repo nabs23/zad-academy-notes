@@ -1,9 +1,9 @@
 Back: [[Hadith Level 1]] | Next: [[Hadith 11 - Do not go to extremes in praising me]]
 
 ## Text of the Hadith
-> It was narrated that Abu Hurayrah رضي الله عنه said:  
-> *"The Messenger of Allah ﷺ said: ‘The strong believer is better and dearer to Allah than the weak believer, although there is goodness in both. Seek that which will benefit you, seek the help of Allah and do not feel helpless. If anything befalls you, do not say, “If only I had done such and such, then such and such would have happened.” Rather say, “This is the decree of Allah and what He wills He does,” for “if only” opens the door to the works of the Shaytan.’ "*  
-> *(Narrated by Muslim)*  
+It was narrated that Abu Hurayrah رضي الله عنه said:  
+*"The Messenger of Allah ﷺ said: ‘The strong believer is better and dearer to Allah than the weak believer, although there is goodness in both. Seek that which will benefit you, seek the help of Allah and do not feel helpless. If anything befalls you, do not say, “If only I had done such and such, then such and such would have happened.” Rather say, “This is the decree of Allah and what He wills He does,” for “if only” opens the door to the works of the Shaytan.’ "*  
+*(Narrated by Muslim)*  
 
 ---
 

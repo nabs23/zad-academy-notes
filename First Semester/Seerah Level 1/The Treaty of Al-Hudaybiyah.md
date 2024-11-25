@@ -43,7 +43,7 @@ Back: [[Seerah Level 1]] | Next: [[Bay‘at ar-Ridwan]]
 
 2. **Divine Revelation**:  
    - **Surah Al-Fath (48:1)** was revealed, declaring this a clear victory:  
-     > “Indeed, We have given you a clear conquest.”  
+     “Indeed, We have given you a clear conquest.”  
    - The treaty allowed Islam to spread without interference.  
 
 3. **Outcome**:  

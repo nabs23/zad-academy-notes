@@ -1,12 +1,12 @@
 Back: [[Hadith Level 1]] | Next: [[Hadith 21 - Calling to Guidance or Misguidance]]
 ### Text of the Hadith
-> It was narrated that Abdullah ibn Mas‘ud (رضي الله عنه) said:  
-> *The Messenger of Allah (ﷺ) drew a line for us, then he said: "This is the path of Allah." Then he drew other lines to its right and left, then he said: "These are other paths" — Yazid said: Splitting in different directions — "on each of these paths there is a devil calling people to it." Then he recited:  
->  
-> *"[And, moreover], this is My path, which is straight, so follow it; and do not follow [other] ways, for you will be separated from His way."*  
-> *(Surah Al-An‘am: 153)*  
->  
-> **(Narrated by Ahmad and an-Nasai; classed as hasan by al-Albani.)**
+It was narrated that Abdullah ibn Mas‘ud (رضي الله عنه) said:  
+*The Messenger of Allah (ﷺ) drew a line for us, then he said: "This is the path of Allah." Then he drew other lines to its right and left, then he said: "These are other paths" — Yazid said: Splitting in different directions — "on each of these paths there is a devil calling people to it." Then he recited:  
+ 
+*"[And, moreover], this is My path, which is straight, so follow it; and do not follow [other] ways, for you will be separated from His way."*  
+*(Surah Al-An‘am: 153)*  
+ 
+**(Narrated by Ahmad and an-Nasai; classed as hasan by al-Albani.)**
 
 ---
 

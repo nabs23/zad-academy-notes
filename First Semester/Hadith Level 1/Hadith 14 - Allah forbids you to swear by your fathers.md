@@ -1,9 +1,9 @@
 Back: [[Hadith Level 1]] | Next: [[Hadith 15 - You will be with those whom you love]]
 
 ## Text of the Hadith  
-> It was narrated from Abdullah ibn Umar رضي الله عنه that the Messenger of Allah ﷺ caught up with Umar ibn al-Khattab رضي الله عنه as he was traveling with other riders and swearing by his father. The Prophet ﷺ said:  
-> *"Indeed Allah forbids you to swear by your fathers. Whoever must swear, let him swear by Allah or else remain silent."*  
-> *(Narrated by al-Bukhari)*  
+It was narrated from Abdullah ibn Umar رضي الله عنه that the Messenger of Allah ﷺ caught up with Umar ibn al-Khattab رضي الله عنه as he was traveling with other riders and swearing by his father. The Prophet ﷺ said:  
+*"Indeed Allah forbids you to swear by your fathers. Whoever must swear, let him swear by Allah or else remain silent."*  
+*(Narrated by al-Bukhari)*  
 
 ---
 

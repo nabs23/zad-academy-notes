@@ -1,11 +1,11 @@
 Back: [[Hadith Level 1]]
 
 ### Text of the Hadith
-> It was narrated from Abu Hurayrah (رضي الله عنه) that the Messenger of Allah (ﷺ) said:  
->  
-> *"Whoever calls to guidance will have a reward like the rewards of those who follow him, without that detracting from their rewards in the slightest. Whoever calls to misguidance will have a burden of sin like that of those who follow him, without that detracting from their sins in the slightest."*  
->  
-> **(Narrated by Muslim)**
+It was narrated from Abu Hurayrah (رضي الله عنه) that the Messenger of Allah (ﷺ) said:  
+ 
+*"Whoever calls to guidance will have a reward like the rewards of those who follow him, without that detracting from their rewards in the slightest. Whoever calls to misguidance will have a burden of sin like that of those who follow him, without that detracting from their sins in the slightest."*  
+ 
+**(Narrated by Muslim)**
 
 ---
 

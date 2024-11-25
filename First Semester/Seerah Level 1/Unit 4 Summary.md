@@ -43,7 +43,7 @@ Back: [[Seerah Level 1]]
 ### **B. The Second Stage: Calling People Openly**  
 1. **Command to Call Openly**:  
    - Revelation of **Surah Ash-Shu’ara 26:214**:  
-     > “And warn, [O Muhammad], your closest kindred.”  
+     “And warn, [O Muhammad], your closest kindred.”  
 2. **On Mount Safa**:  
    - The Prophet ﷺ warned the Quraysh and invited them to Islam.  
    - **Abu Lahab** rejected the message, leading to the revelation of **Surah Al-Masad 111:1–5**.  
