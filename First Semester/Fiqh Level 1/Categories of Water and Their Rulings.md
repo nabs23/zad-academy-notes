@@ -1,4 +1,4 @@
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[Rulings on Vessels]]
 
 ### **Definition of Water**
 
@@ -94,4 +94,4 @@ Back: [[Fiqh Level 1]]
     (Narrated by At-Tirmidhi; classified as Sahih by Al-Albani)
 
 ---
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[Rulings on Vessels]]

@@ -1,4 +1,4 @@
-Back: [[Aqeedah Level 1]]
+Back: [[Aqeedah Level 1]] | Next: [[Verification Principles by Ahl as-Sunnah]]
 
 ### **1. The Noble Qur’an**  
 The Qur’an is the primary source of sound aqeedah.  
@@ -61,4 +61,4 @@ The Sunnah explains and complements the Qur’an. It consists of:
 
 
 ---
-Back: [[Aqeedah Level 1]]
+Back: [[Aqeedah Level 1]] | Next: [[Verification Principles by Ahl as-Sunnah]]

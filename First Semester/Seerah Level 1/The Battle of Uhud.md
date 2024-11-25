@@ -1,4 +1,4 @@
-Back: [[Seerah Level 1]] | Next: [[The Battle of Al-Khandaq (The Trench) or Al-Ahzab (The Confederates)]]
+Back: [[Seerah Level 1]]  
 ## **The Battle of Uhud**  
 - **When**: **3 AH**.  
 - **Cause**:  
@@ -48,4 +48,4 @@ Back: [[Seerah Level 1]] | Next: [[The Battle of Al-Khandaq (The Trench) or Al-A
 
 ---
 
-Back: [[Seerah Level 1]] | Next: [[The Battle of Al-Khandaq (The Trench) or Al-Ahzab (The Confederates)]]
+Back: [[Seerah Level 1]]  

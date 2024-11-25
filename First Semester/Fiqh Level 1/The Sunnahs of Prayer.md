@@ -1,4 +1,4 @@
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[Description of the Prayer]]
 
 #### 1. **Raising the Hands**:
 - **When**: Performed at four points:
@@ -117,4 +117,4 @@ Back: [[Fiqh Level 1]]
   Sa‘d ibn Abi Waqqas (RA) narrated this Sunnah, as seen from the Prophet ﷺ. (Narrated by Muslim)
 
 
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[Description of the Prayer]]

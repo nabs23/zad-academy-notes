@@ -1,4 +1,4 @@
-Back: [[Seerah Level 1]] | Next: [[The Treaty of Al-Hudaybiyah]]
+Back: [[Seerah Level 1]]
 
 - **When**: **5 AH**, in Shawwal.  
 - **Cause**:  
@@ -40,4 +40,4 @@ Back: [[Seerah Level 1]] | Next: [[The Treaty of Al-Hudaybiyah]]
 
 ---
 
-Back: [[Seerah Level 1]] | Next: [[The Treaty of Al-Hudaybiyah]]
+Back: [[Seerah Level 1]]  

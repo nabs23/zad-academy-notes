@@ -1,3 +1,5 @@
+Back: [[Fiqh Level 1]] | Next: [[Wudu and Its Rulings]]
+
 ## **1. Relieving Oneself and Its Etiquette**
 
 ### **Definitions**
@@ -160,4 +162,4 @@ Abu Hurayrah (رضي الله عنه) reported the Prophet ﷺ said:
 - Cleaning oneself with water after relieving oneself (**Istinja**).
 
 ---
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[Wudu and Its Rulings]]

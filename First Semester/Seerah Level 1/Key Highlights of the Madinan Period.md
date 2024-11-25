@@ -1,4 +1,4 @@
-Back: [[Seerah Level 1]] | Next: [[Key Foundations in Madinah]]
+Back: [[Seerah Level 1]] | Next: [[Key Foundation in Madinah]]
 
 ## **7. Key Highlights of the Madinan Period (Introduction)**  
 
@@ -20,5 +20,4 @@ Back: [[Seerah Level 1]] | Next: [[Key Foundations in Madinah]]
        “Permission [to fight] has been given to those who are being fought, because they were wronged...”  
 
 ---
-
-Back: [[Seerah Level 1]] | Next: [[Key Foundations in Madinah]]
+Back: [[Seerah Level 1]] | Next: [[Key Foundation in Madinah]]

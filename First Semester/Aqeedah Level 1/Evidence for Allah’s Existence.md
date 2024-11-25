@@ -1,4 +1,4 @@
-Back: [[Aqeedah Level 1]]
+Back: [[Aqeedah Level 1]] | Next: [[Aqeedah Level 1 Summary]]
 
 When presenting the existence of Allah to non-believers or those who reject religious texts, it is essential to use logical, natural, and tangible evidence. This approach provides a strong basis for affirming belief in Allah. Below are the three types of evidence mentioned:
 
@@ -96,4 +96,4 @@ The existence of Allah is supported by:
 These proofs provide a comprehensive foundation for belief in Allah, beyond reliance on religious texts alone.  
 
 ---
-Back: [[Aqeedah Level 1]]
+Back: [[Aqeedah Level 1]] | Next: [[Aqeedah Level 1 Summary]]

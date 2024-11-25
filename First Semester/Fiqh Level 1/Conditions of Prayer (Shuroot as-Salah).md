@@ -1,4 +1,4 @@
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[Essential Parts of Prayer (Arkan as-Salah)]]
 
 #### 1. **Intention (Niyyah)**
 - The intention is essential and must be made in the heart; it is not required to verbalize it.
@@ -83,4 +83,4 @@ Back: [[Fiqh Level 1]]
   - If easily removable, it must be set aside for the prayer to be valid. 
 
 
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[Essential Parts of Prayer (Arkan as-Salah)]]

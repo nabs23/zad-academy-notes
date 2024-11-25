@@ -79,5 +79,4 @@ Back: [[Seerah Level 1]] | Next: [[Preparations for Hijrah]]
   - A spiritual journey that reassured the Prophet ﷺ of Allah’s support during a difficult time.  
 
 ---
-
 Back: [[Seerah Level 1]] | Next: [[Preparations for Hijrah]]

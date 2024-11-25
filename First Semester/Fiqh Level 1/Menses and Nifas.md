@@ -1,4 +1,5 @@
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[The Importance and Virtues of Prayer]]
+
 ### Menses (Hayd) and Postnatal Bleeding (Nifas) Notes
 
 #### Definition of Hayd (Menses):
@@ -77,4 +78,4 @@ Back: [[Fiqh Level 1]]
 
 
 ---
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[The Importance and Virtues of Prayer]]

@@ -97,5 +97,4 @@ Back: [[Hadith Level 1]] | Next: [[Hadith 2 - Tell Me About Islam]]
 - The hadith emphasizes both individual responsibility (for example, performing prayer) and communal responsibility (for example, paying zakat)  
 - Reflect on the balance of these acts and their significance in maintaining one’s faith  
 
-
 Back: [[Hadith Level 1]] | Next: [[Hadith 2 - Tell Me About Islam]]

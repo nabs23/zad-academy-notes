@@ -99,5 +99,4 @@ Back: [[Hadith Level 1]] | Next: [[Hadith 6 - You Are Going to Some of the Peopl
 - Good manners are central to Islamic teachings and reflect one’s faith and relationship with Allah.  
 - Strive to improve your character by following the example of the Prophet ﷺ and internalizing Quranic teachings.
 
-
 Back: [[Hadith Level 1]] | Next: [[Hadith 6 - You Are Going to Some of the People of the Book]]

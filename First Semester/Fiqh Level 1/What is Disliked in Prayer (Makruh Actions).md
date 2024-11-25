@@ -1,4 +1,4 @@
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[What Invalidates the Prayer]]
 
 #### **1. Turning Slightly Unnecessarily**
 - **Evidence**: The Prophet ﷺ said when asked about turning during prayer:  
@@ -88,4 +88,4 @@ Back: [[Fiqh Level 1]]
    - Movements without need or purpose.  
 
 --- 
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[What Invalidates the Prayer]]

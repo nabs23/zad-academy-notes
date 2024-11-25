@@ -1,4 +1,4 @@
-Back: [[Seerah Level 1]] | Next: [[Bay‘at ar-Ridwan]]
+Back: [[Seerah Level 1]]  
 
 - **When**: **Dhul-Qa’dah, 6 AH**.  
 - **Where**: Near **Hudaybiyah**, close to Makkah.  
@@ -52,4 +52,4 @@ Back: [[Seerah Level 1]] | Next: [[Bay‘at ar-Ridwan]]
 
 ---
 
-Back: [[Seerah Level 1]] | Next: [[Bay‘at ar-Ridwan]]
+Back: [[Seerah Level 1]]  

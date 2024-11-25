@@ -1,3 +1,5 @@
+Back: [[Fiqh Level 1]] | Next: [[Menses and Nifas]]
+
 #### **Definition of Physical Impurity (Najāsah):**
 
 - Refers to any dirty substance that Islamic law (Shari’ah) requires to be avoided.
@@ -144,4 +146,4 @@ Impurities are divided into three levels based on severity:
 This concludes the section on **Removing Physical Impurities** in Unit 3. Let me know if you would like clarification or to proceed to the next section.
 
 
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[Menses and Nifas]]

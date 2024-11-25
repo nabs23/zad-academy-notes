@@ -1,4 +1,4 @@
-Back: [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[Major Events of the Makkan Period]]
 
 ## **3. The Stages of Da’wah (Call to Islam)**  
 
@@ -53,5 +53,4 @@ Back: [[Seerah Level 1]]
   - Many tribes rejected him, but this effort laid the groundwork for future acceptance, especially among the people of **Yathrib (Madinah)**.  
 
 ---
-
-Back: [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[Major Events of the Makkan Period]]

@@ -1,4 +1,4 @@
-Back: [[Seerah Level 1]] | Next: [[The Battle of Uhud]]
+Back: [[Seerah Level 1]]
 
 ## **The Battle of Badr**  
 - **When**: Ramadan, **2 AH**.  
@@ -43,4 +43,4 @@ Back: [[Seerah Level 1]] | Next: [[The Battle of Uhud]]
 
 ---
 
-Back: [[Seerah Level 1]] | Next: [[The Battle of Uhud]]
+Back: [[Seerah Level 1]]  

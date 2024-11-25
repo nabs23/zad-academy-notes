@@ -1,3 +1,5 @@
+Back: [[Fiqh Level 1]] | Next: [[Tayammum and Its Rulings]]
+
 ### **Ghusl (Full Body Purification)**
 
 #### **Definition**
@@ -102,4 +104,4 @@
 
 
 ---
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[Tayammum and Its Rulings]]

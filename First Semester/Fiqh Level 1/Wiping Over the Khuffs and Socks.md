@@ -1,3 +1,5 @@
+Back: [[Fiqh Level 1]] | Next: [[Ghusl and Its Obligations]]
+
 ### **1. Definition of Khuffs**  
 - **Khuffs**: A type of footwear made of thin leather or similar material, covering the ankles and more, similar to socks.
 
@@ -126,4 +128,4 @@ Four conditions must be met:
    - **Dressings**: No such condition applies.
 
 ---
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[Ghusl and Its Obligations]]

@@ -1,4 +1,4 @@
-Back: [[Hadith Level 1]] | Next: [[Hadith 13 - I Know that You Are Only A Stone]]
+Back: [[Hadith Level 1]] | Next: [[Hadith 13 - I know that you are only a stone]]
 
 ## Text of the Hadith
 
@@ -52,5 +52,4 @@ Back: [[Hadith Level 1]] | Next: [[Hadith 13 - I Know that You Are Only A Stone]
     - Practices such as praying at graves or building structures over them are condemned as deviations that lead to misguidance.
 
 ---
-
-Back: [[Hadith Level 1]] | Next: [[Hadith 13 - I Know that You Are Only A Stone]]
+Back: [[Hadith Level 1]] | Next: [[Hadith 13 - I know that you are only a stone]]

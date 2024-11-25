@@ -97,5 +97,4 @@ According to another narration in Muslim:
    - Avoiding cultural or personal rituals that contradict Islamic teachings.  
 
 ---
-
 Back: [[Hadith Level 1]] | Next: [[Hadith 19 - Adhere to My Sunnah and Beware of Innovations]]

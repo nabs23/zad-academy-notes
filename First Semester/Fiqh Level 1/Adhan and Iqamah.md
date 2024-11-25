@@ -1,4 +1,5 @@
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[The Times of Prayer]]
+
 ### Adhan and Iqamah: Detailed Notes
 
 #### **Definition:**
@@ -126,4 +127,4 @@ Back: [[Fiqh Level 1]]
 4. It is preferable that the **same person gives both the adhan and iqamah**, though it is not obligatory.
 
 ---
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[The Times of Prayer]]

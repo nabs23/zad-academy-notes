@@ -44,5 +44,4 @@ The Prophet ﷺ had **seven children**, of whom **three were sons** and **four w
 - **All of his children passed away during his lifetime**, except for **Fatimah (RA)**, who passed away after him.  
 
 ---
-
 Back: [[Seerah Level 1]] | Next: [[Introduction to the Prophetic Mission]]

@@ -21,5 +21,4 @@ Back: [[Seerah Level 1]] | Next: [[His Wetnurses]]
   - None of the Companions, the best three generations, or leading scholars of Islam approved of such celebrations.  
 
 ---
-
 Back: [[Seerah Level 1]] | Next: [[His Wetnurses]]

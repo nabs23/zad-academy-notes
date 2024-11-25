@@ -42,5 +42,4 @@ Back: [[Seerah Level 1]] | Next: [[His Wives]]
   - Born to **Mariyah al-Qibtiyah (RA)**, a gift from **Muqawqis** of Egypt.  
 
 ---
-
 Back: [[Seerah Level 1]] | Next: [[His Wives]]

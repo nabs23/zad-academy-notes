@@ -92,3 +92,5 @@ Back: [[Hadith Level 1]]
 
 ### Conclusion
 This hadith emphasizes the **power of influence**—whether for guidance or misguidance. It encourages Muslims to revive and promote good practices, avoid harmful innovations, and understand the lasting impact of their actions.
+
+Back: [[Hadith Level 1]]

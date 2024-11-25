@@ -1,4 +1,4 @@
-Back: [[Aqeedah Level 1]]
+Back: [[Aqeedah Level 1]] | Next: [[Definition and Importance of Tawhid]]
 
 ### **1. Following the Straight Path**  
 - This is the way of the Prophet ﷺ and his Companions رضي الله عنهم, avoiding innovation and misguidance.  
@@ -67,4 +67,4 @@ c. *“And most of them follow not except assumption. Indeed, assumption avails 
 
 
 ---
-Back: [[Aqeedah Level 1]]
+Back: [[Aqeedah Level 1]] | Next: [[Definition and Importance of Tawhid]]

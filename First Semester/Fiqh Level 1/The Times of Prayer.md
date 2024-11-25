@@ -1,4 +1,5 @@
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[Conditions of Prayer (Shuroot as-Salah)]]
+
 ### The Times of Prayer
 
 #### General Ruling
@@ -50,4 +51,4 @@ Back: [[Fiqh Level 1]]
 - Missing obligatory prayers, especially Asr, carries severe consequences as highlighted in the hadiths.
 
 
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[Conditions of Prayer (Shuroot as-Salah)]]

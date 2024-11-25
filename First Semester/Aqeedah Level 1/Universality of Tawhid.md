@@ -1,4 +1,4 @@
-Back: [[Aqeedah Level 1]]
+Back: [[Aqeedah Level 1]] | Next: [[Pillars of Tawhid]]
 
 ### **1. Tawhid as the Core of Islam**
 - **Definition of Islam**:  
@@ -54,4 +54,4 @@ Back: [[Aqeedah Level 1]]
 The fundamental belief system of all messengers is one and the same—**Tawhid (oneness of Allah)**. While laws changed based on the circumstances of the people, the essential call to Islam and submission to Allah remained consistent.
 
 ---
-Back: [[Aqeedah Level 1]]
+Back: [[Aqeedah Level 1]] | Next: [[Pillars of Tawhid]]

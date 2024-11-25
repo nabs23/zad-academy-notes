@@ -1,0 +1,15 @@
+- [[The Rights of Allah (ﷻ) Over People]]
+- [[The Rights of the Prophet Muhammad (ﷺ) Over His Ummah]]
+- [[The Rights of the Sahabah (Companions of the Prophet ﷺ)]]
+- [[The Rights of the Scholars]]
+- The Rights of the Parents
+- The Rights of Children Over Their Parents
+- The Rights of the Spouses
+- The Rights of the Wife Over Her Husband
+- The Rights of the Relatives
+- The Rights of the Neighbours
+- The Rights of the Guest
+- The Rights of the Host
+- The Rights of the Workers and Bosses
+- The Rights of the Rulers and Subjects
+- The Rights of the People Over the Ruler

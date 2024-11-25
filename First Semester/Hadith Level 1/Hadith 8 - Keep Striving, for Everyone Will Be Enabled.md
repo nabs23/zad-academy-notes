@@ -1,4 +1,4 @@
-Back: [[Hadith Level 1]] | Next: [[Hadith 9 - The Creation of One of You]]
+Back: [[Hadith Level 1]] | Next: [[Hadith 9 - The creation of one of you is put together in his mother’s womb]]
 
 ## Text of the Hadith
 > It was narrated that Ali رضي الله عنه said:  
@@ -68,5 +68,4 @@ Back: [[Hadith Level 1]] | Next: [[Hadith 9 - The Creation of One of You]]
    - The statement *"Keep striving, for everyone will be enabled to do that for which he was created"* emphasizes that effort is essential, and it aligns with the destiny decreed by Allah.  
 
 ---
-
-Back: [[Hadith Level 1]] | Next: [[Hadith 9 - The Creation of One of You]]
+Back: [[Hadith Level 1]] | Next: [[Hadith 9 - The creation of one of you is put together in his mother’s womb]]

@@ -1,4 +1,5 @@
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[Obligatory Parts of Prayer (Wajibaat as-Salah)]]
+
 ### **Essential Parts of Prayer (Arkan al-Salat)**
 
 Below are the critical parts of the prayer that are obligatory (Fard). They must be completed in order for the prayer to be valid. If any of these parts are omitted, whether intentionally or accidentally, the prayer becomes invalid.
@@ -101,4 +102,4 @@ Below are the critical parts of the prayer that are obligatory (Fard). They must
 ### **Important Notes**
 - **Non-Waivable Parts**: These actions cannot be omitted intentionally, by mistake, or due to ignorance. Omitting them invalidates the prayer.
 
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[Obligatory Parts of Prayer (Wajibaat as-Salah)]]

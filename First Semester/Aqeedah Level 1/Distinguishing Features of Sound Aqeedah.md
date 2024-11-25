@@ -1,4 +1,4 @@
-Back: [[Aqeedah Level 1]]
+Back: [[Aqeedah Level 1]] | Next: [[Sources of Sound Aqeedah]]
 
 Sound Islamic aqeedah stands apart from false beliefs and innovations (*bid’ah*) due to the following characteristics:
 
@@ -24,4 +24,4 @@ Sound Islamic aqeedah stands apart from false beliefs and innovations (*bid’ah
 
 
 ---
-Back: [[Aqeedah Level 1]]
+Back: [[Aqeedah Level 1]] | Next: [[Sources of Sound Aqeedah]]

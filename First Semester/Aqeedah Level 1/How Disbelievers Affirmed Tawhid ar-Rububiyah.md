@@ -1,4 +1,4 @@
-Back: [[Aqeedah Level 1]]
+Back: [[Aqeedah Level 1]] | Next: [[Impacts of Belief in Tawhid ar-Rububiyah]]
 
 Even the disbelievers and polytheists affirm Tawhid ar-Rububiyah (Oneness of Lordship) in the sense that they recognize Allah as the Creator, Sovereign, and Sustainer of all things. However, this affirmation alone is not sufficient for salvation because they associate others with Allah in worship (Shirk).
 
@@ -64,4 +64,4 @@ The recognition of Allah's Lordship (Tawhid ar-Rububiyah) by disbelievers serves
 In the next section, we will explore **Tawhid al-Uluhiyah**, which emphasizes singling out Allah in worship.
 
 ---
-Back: [[Aqeedah Level 1]]
+Back: [[Aqeedah Level 1]] | Next: [[Impacts of Belief in Tawhid ar-Rububiyah]]

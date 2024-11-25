@@ -1,4 +1,4 @@
-Back: [[Aqeedah Level 1]]
+Back: [[Aqeedah Level 1]] | Next: [[Universality of Tawhid]]
 
 ### **1. Well-Being in This World and the Hereafter**
 - **Evidence**:  
@@ -58,4 +58,4 @@ Back: [[Aqeedah Level 1]]
   - The professor’s reverence for a cow highlights the superiority and purity of Tawhid, which prevents such degradation.
 
 ---
-Back: [[Aqeedah Level 1]]
+Back: [[Aqeedah Level 1]] | Next: [[Universality of Tawhid]]

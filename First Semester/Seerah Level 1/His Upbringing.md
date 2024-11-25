@@ -57,5 +57,4 @@ This miraculous event happened **twice**:
 - He loved him deeply, preferred him over his own children, and kept him close.  
 
 ---
-
 Back: [[Seerah Level 1]] | Next: [[The Prophet's Marriage to Khadijah]]

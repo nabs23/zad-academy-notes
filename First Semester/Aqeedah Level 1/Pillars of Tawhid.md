@@ -1,4 +1,4 @@
-Back: [[Aqeedah Level 1]]
+Back: [[Aqeedah Level 1]] | Next: [[Categories of Tawhid]]
 
 Tawhid (the Oneness of Allah) has two essential pillars without which it cannot be established.
 These pillars are:
@@ -68,4 +68,4 @@ This understanding of **negation and affirmation** emphasizes the comprehensive 
 
 
 ---
-Back: [[Aqeedah Level 1]]
+Back: [[Aqeedah Level 1]] | Next: [[Categories of Tawhid]]

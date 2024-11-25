@@ -1,4 +1,4 @@
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[Definition of Impure Substances and Their Categories]]
 
 ## **Definition of Purification (Taharah)**
 - **Arabic meaning**: Cleanliness and keeping away from dirt and filth.  
@@ -78,4 +78,4 @@ Purification is divided into two main categories:
    - Ghusl for Major Hadath.  
 
 ---
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[Definition of Impure Substances and Their Categories]]

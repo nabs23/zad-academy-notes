@@ -1,4 +1,4 @@
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[Categories of Water and Their Rulings]]
 
 ### **Definition of Impurity (Najāsah)**
 
@@ -123,4 +123,4 @@ This note summarizes the **definition, categories, and rulings** regarding impur
 
 
 ---
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[Categories of Water and Their Rulings]]

@@ -51,4 +51,4 @@ Back: [[Seerah Level 1]] | Next: [[The Stages of Da'wah (Call to Islam)]]
 
 ---
 
-Back: [[Seerah Level 1]] | Next: [[Major Events of the Makkan Period]]
+Back: [[Seerah Level 1]] | Next: [[The Stages of Da'wah (Call to Islam)]]

@@ -1,4 +1,4 @@
-Back: [[Aqeedah Level 1]]
+Back: [[Aqeedah Level 1]] | Next: [[Distinguishing Features of Sound Aqeedah]]
 #### **Definition of Sound Aqeedah**
 
 1. **Linguistic Meaning**:
@@ -68,4 +68,4 @@ Back: [[Aqeedah Level 1]]
     - Qur’an: _“If only the people of the cities had believed and feared Allah, We would have opened upon them blessings from the heaven and the earth.”_ ([al-A’raf 7:96](https://quran.com/7/96))
 
 
-Back: [[Aqeedah Level 1]]
+Back: [[Aqeedah Level 1]] | Next: [[Distinguishing Features of Sound Aqeedah]]

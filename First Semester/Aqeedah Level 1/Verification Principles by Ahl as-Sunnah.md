@@ -1,4 +1,4 @@
-Back: [[Aqeedah Level 1]]
+Back: [[Aqeedah Level 1]] | Next: [[Causes of Drifting Away from Sound Aqeedah]]
 
 ### **1. Belief in and Submission to the Qur’an and Sunnah**  
 - Ahl as-Sunnah believe in, submit to, and venerate the texts of the Qur’an and Sunnah.  
@@ -63,4 +63,4 @@ Back: [[Aqeedah Level 1]]
     3. *“For their breaking of the covenant We cursed them and made their hearts hard. They distort words from their [proper] usages.”* ([al-Ma’idah 5:13](https://quran.com/5/13))  
 
 ---
-Back: [[Aqeedah Level 1]]
+Back: [[Aqeedah Level 1]] | Next: [[Causes of Drifting Away from Sound Aqeedah]]

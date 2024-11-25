@@ -1,4 +1,4 @@
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[Relieving Oneself and Sunan al-Fitrah]]
 
 ### **Definition of Vessels**
 - Vessels refer to containers used for holding water, food, or other substances that may be used in daily life or for purification.
@@ -63,4 +63,4 @@ Back: [[Fiqh Level 1]]
 - Interaction with non-Muslims, such as using their vessels, is permissible under conditions, showing the balance in Islamic rulings.
 
 ---
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[Relieving Oneself and Sunan al-Fitrah]]

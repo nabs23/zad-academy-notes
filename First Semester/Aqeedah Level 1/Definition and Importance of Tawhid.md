@@ -1,4 +1,4 @@
-Back: [[Aqeedah Level 1]]
+Back: [[Aqeedah Level 1]] | Next: [[Impact of Tawhid on the Individual]]
 
 ### **1. Linguistic Definition**
 - The word *Tawhid* is derived from the root **wahhada**, meaning "to make something one."
@@ -93,4 +93,4 @@ Back: [[Aqeedah Level 1]]
   *The weight of these words depends on the sincerity, purity of heart, and good intentions behind them.*  
 
 ---
-Back: [[Aqeedah Level 1]]
+Back: [[Aqeedah Level 1]] | Next: [[Impact of Tawhid on the Individual]]

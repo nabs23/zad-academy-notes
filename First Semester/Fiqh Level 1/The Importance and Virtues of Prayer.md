@@ -1,4 +1,5 @@
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[Adhan and Iqamah]]
+
 #### Definition of Prayer:
 - **Linguistic Meaning**: 
   - The word *salat* means supplication or invocation.
@@ -91,5 +92,4 @@ Back: [[Fiqh Level 1]]
    - Disbelievers are **not required to make up missed prayers** upon accepting Islam, as Islam erases what came before it.
 
 --- 
-
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[Adhan and Iqamah]]

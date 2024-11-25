@@ -1,3 +1,5 @@
+Back: [[Fiqh Level 1]] | Next: [[Removing Physical Impurities (Najāsah)]]
+
 ### **Tayammum (Dry Ablution)**
 
 #### **Definition**
@@ -119,4 +121,4 @@ There are three scenarios:
 
 
 ---
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[Removing Physical Impurities (Najāsah)]]

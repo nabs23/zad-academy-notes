@@ -36,5 +36,4 @@ Back: [[Seerah Level 1]] | Next: [[Key Highlights of the Madinan Period]]
    - The Prophet ﷺ oversaw the construction of **Masjid an-Nabawi** (the Prophet’s Mosque), which became the center of the Muslim community in Madinah.  
 
 ---
-
 Back: [[Seerah Level 1]] | Next: [[Key Highlights of the Madinan Period]]

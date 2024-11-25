@@ -1,3 +1,5 @@
+Back: [[Fiqh Level 1]] | Next: [[Wiping Over the Khuffs and Socks]]
+
 ## **1. Definition of Wudu**
 
 ### **Linguistic Meaning**
@@ -193,4 +195,4 @@ The following actions invalidate Wudu:
 
 
 ---
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[Wiping Over the Khuffs and Socks]]

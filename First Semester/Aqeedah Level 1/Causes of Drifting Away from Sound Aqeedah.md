@@ -1,4 +1,4 @@
-Back: [[Aqeedah Level 1]]
+Back: [[Aqeedah Level 1]] | Next: [[Means of Protecting Oneself Against Deviating from Sound Aqeedah]]
 
 ### **1. Ignorance of Sound Aqeedah**  
 - Many people turn away from learning and teaching aqeedah or neglect its importance.  
@@ -90,4 +90,4 @@ Back: [[Aqeedah Level 1]]
 
 
 ---
-Back: [[Aqeedah Level 1]]
+Back: [[Aqeedah Level 1]] | Next: [[Means of Protecting Oneself Against Deviating from Sound Aqeedah]]

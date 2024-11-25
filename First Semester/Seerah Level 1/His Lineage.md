@@ -33,4 +33,5 @@ Back: [[Seerah Level 1]] | Next: [[His Birth]]
 ### **Benefit**  
 - The lineage of the Prophet ﷺ emphasizes that Allah selected him from the noblest ancestry, highlighting his status as the final and most honored Messenger. 
 
+
 Back: [[Seerah Level 1]] | Next: [[His Birth]]

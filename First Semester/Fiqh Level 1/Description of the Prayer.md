@@ -1,4 +1,4 @@
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[What is Disliked in Prayer (Makruh Actions)]]
 
 #### **1. Preparation and Intent**
 - Before starting prayer, the worshipper should:
@@ -84,4 +84,4 @@ Back: [[Fiqh Level 1]]
   - *"SubhanAllah" (33x), "Alhamdulillah" (33x), "Allahu Akbar" (34x).*
 
 
-Back: [[Fiqh Level 1]]
+Back: [[Fiqh Level 1]] | Next: [[What is Disliked in Prayer (Makruh Actions)]]

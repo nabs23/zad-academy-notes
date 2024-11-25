@@ -1,4 +1,4 @@
-Back: [[Seerah Level 1]] | Next: [[Major Campaigns and the Treaty of Al-Hudaybiyah]]
+Back: [[Seerah Level 1]]
 
 ### **1. List of Expeditions and Campaigns**  
 1. **Expedition of Sayf al-Bahr** (1 AH):  
@@ -45,4 +45,4 @@ Back: [[Seerah Level 1]] | Next: [[Major Campaigns and the Treaty of Al-Hudaybiy
 
 ---
 
-Back: [[Seerah Level 1]] | Next: [[Major Campaigns and the Treaty of Al-Hudaybiyah]]
+Back: [[Seerah Level 1]]  

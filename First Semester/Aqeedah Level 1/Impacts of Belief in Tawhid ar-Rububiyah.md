@@ -1,4 +1,4 @@
-Back: [[Aqeedah Level 1]]
+Back: [[Aqeedah Level 1]] | Next: [[Evidence for Allah’s Existence]]
 
 Belief in the Oneness of Lordship strengthens a believer’s faith and profoundly impacts their relationship with Allah in many aspects:
 
@@ -107,4 +107,4 @@ Belief in the Oneness of Lordship strengthens a believer’s faith and profoundl
 Affirming Tawhid ar-Rububiyah fosters love, trust, submission, and reliance on Allah. It creates a profound sense of connection with Him, encouraging believers to remain sincere, reflective, and steadfast in their faith while accepting His decrees with humility and patience.
 
 ---
-Back: [[Aqeedah Level 1]]
+Back: [[Aqeedah Level 1]] | Next: [[Evidence for Allah’s Existence]]
