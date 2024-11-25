@@ -1,3 +1,5 @@
+Back: [[Tafsir Level 1]] | Next: [[Jamiʿ al-Bayan]]
+
 - **Methodology**:  
   - Scholars interpreted the Qur'an using:  
     1. **The Qur'an** (explaining verses with other verses).  
@@ -34,3 +36,6 @@
 - **Answer**:  
   - Scholars explain the Qur'an through the Qur'an by using one verse to clarify another.  
   - Explaining the Qur'an based on **personal opinion** without adhering to Islamic principles is impermissible and leads to misinterpretation. Valid tafsir must rely on authentic sources and sound methodology.
+
+
+Back: [[Tafsir Level 1]] | Next: [[Jamiʿ al-Bayan]]

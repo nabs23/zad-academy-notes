@@ -1,3 +1,5 @@
+Back: [[Seerah Level 1]] | Next: [[The Prophet’s Hajj – The Farewell Pilgrimage (10 AH)]]
+
 ### **A. The Year of Delegations**  
 
 1. **Reason for the Name**:  
@@ -55,3 +57,5 @@
    - This event highlighted **Abu Bakr’s pivotal role** and his trustworthiness in leading major responsibilities on behalf of the Prophet ﷺ.  
 
 The Year of Delegations is a testament to the success of the Prophet’s ﷺ mission and the unification of Arabia under the banner of Islam.
+
+Back: [[Seerah Level 1]] | Next: [[The Prophet’s Hajj – The Farewell Pilgrimage (10 AH)]]

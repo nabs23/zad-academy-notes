@@ -1,4 +1,4 @@
-Back: [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[Expeditions and Campaigns Before Badr]]
 
 ## **Key Foundations in Madinah**
 
@@ -54,5 +54,4 @@ Back: [[Seerah Level 1]]
     - **“If We give them authority in the land, [they will] establish prayer and give zakah and enjoin what is right and forbid what is wrong...”** (*Surah Al-Hajj 22:41*).  
 
 ---
-
-Back: [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[Expeditions and Campaigns Before Badr]]

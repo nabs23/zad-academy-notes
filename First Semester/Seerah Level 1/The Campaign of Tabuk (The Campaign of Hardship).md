@@ -1,3 +1,5 @@
+Back: [[Seerah Level 1]] | Next: [[The Year of Delegations (9 AH)]]
+
 ### **Date and Context**  
 - **Date**: Rajab, 9 AH.  
 - **Context**:  
@@ -63,3 +65,6 @@
    - The campaign helped solidify Islam’s presence in northern Arabia and ensured peace and stability in the region.  
 
 This campaign marked the final military expedition led by the Prophet ﷺ, reflecting both the strength of the Muslim state and the Prophet’s ﷺ leadership.
+
+
+Back: [[Seerah Level 1]] | Next: [[The Year of Delegations (9 AH)]]

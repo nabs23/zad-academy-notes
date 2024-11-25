@@ -1,3 +1,5 @@
+Back: [[Tafsir Level 1]] | Next: [[Tafsir of the Scholars]]
+
 - **Definition**:  
   - The Tabi’een learned tafsir from the Sahabah (RA), following the same methodology of explaining the Qur'an by:
     1. The Qur'an itself.  
@@ -25,3 +27,5 @@
 - **Understanding**:  
   - Believers’ descendants who followed them in faith will be raised to the same level in Paradise.  
   - This is a manifestation of Allah’s mercy and His desire to bring joy to the believers.
+
+Back: [[Tafsir Level 1]] | Next: [[Tafsir of the Scholars]]

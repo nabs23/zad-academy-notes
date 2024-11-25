@@ -1,3 +1,5 @@
+Back: [[Tafsir Level 1]] | Next: [[Sovereign of the Day of Recompense]]
+
 ## **Explanation of Verses: [All praise is due to Allah, Lord of the worlds]**
 
 ### **[All praise]**  
@@ -68,3 +70,5 @@
 4. **Correct the following**:  
    - If Ar-Rahman appears alone, it **does** include the meaning of Ar-Raheem.  
    - There is **no singular** form of the word "al-Aalam" (worlds).  
+
+Back: [[Tafsir Level 1]] | Next: [[Sovereign of the Day of Recompense]]

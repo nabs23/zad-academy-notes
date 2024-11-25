@@ -1,3 +1,5 @@
+Back: [[Tafsir Level 1]] | Next: [[Reason for Revelation (Asbab al-Nuzul)]]
+
 ### **Virtues of These Verses**  
 - Narrated in Sahih Muslim:  
   *Jibreel (AS) said to the Prophet ﷺ, “Glad tidings of two lights that have been given to you and were never given to any prophet before you: the Opening of the Book (Surat al-Fatihah) and the closing verses of Surat al-Baqarah. You will never recite one letter of them except that you will be given (reward).”*  
@@ -101,3 +103,5 @@
    - No imposition of unbearable burdens.  
    - Pardon, forgiveness, and mercy.  
    - Victory over disbelieving people.  
+
+Back: [[Tafsir Level 1]] | Next: [[Reason for Revelation (Asbab al-Nuzul)]]

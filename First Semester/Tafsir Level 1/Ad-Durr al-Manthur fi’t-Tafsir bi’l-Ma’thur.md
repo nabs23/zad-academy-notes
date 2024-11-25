@@ -1,3 +1,5 @@
+Back: [[Tafsir Level 1]] | Next: [[Al-Jamiʿ li Ahkam al-Qur'an]]
+
 ## **Al-Jamiʿ li Ahkam al-Qur'an**
 
 - **Author**:  
@@ -31,3 +33,5 @@
      - Includes a broader analysis of linguistic and contextual meanings.  
    - **Al-Baghawi**:  
      - An abridged and simplified tafsir, free from weak narrations and innovations.  
+
+Back: [[Tafsir Level 1]] | Next: [[Al-Jamiʿ li Ahkam al-Qur'an]]

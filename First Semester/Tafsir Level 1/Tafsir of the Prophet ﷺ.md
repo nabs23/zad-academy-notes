@@ -1,3 +1,5 @@
+Back: [[Tafsir Level 1]] | Next: [[Tafsir of the Sahabah (RA)]]
+
 - **Role of the Prophet ﷺ**:  
   - Explained parts of the Qur'an that were brief, general, or ambiguous.
   - Provided practical details and examples for commands in the Qur'an.
@@ -32,3 +34,6 @@
   - Majority of scholars affirm that believers will see Allah based on authentic hadiths and verses (e.g., Yunus 10:26, Al-Qiyamah 75:22-23).  
   - Some groups, such as the Mu'tazilah, denied this based on their interpretation of Allah’s transcendence.  
   - Ahl al-Sunnah affirm it as a true reward without likening it to creation.
+
+
+Back: [[Tafsir Level 1]] | Next: [[Tafsir of the Sahabah (RA)]]

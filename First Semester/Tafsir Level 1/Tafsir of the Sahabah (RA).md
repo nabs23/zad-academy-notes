@@ -1,3 +1,5 @@
+Back: [[Tafsir Level 1]] | Next: [[Tafsir of the Tabi’een]]
+
 - **Methodology of the Sahabah**:  
   - The Sahabah explained the Qur'an by:  
     1. **The Qur'an itself**.  
@@ -24,3 +26,5 @@
        - When Allah decrees something, the angels near Him hear a sound like chains dragged over rocks.  
        - The angels swoon, and when they recover, they ask, *"What has your Lord said?"*  
        - Those whom Allah wills respond, *"The truth. And He is the Most High, the Grand."*
+
+Back: [[Tafsir Level 1]] | Next: [[Tafsir of the Tabi’een]]

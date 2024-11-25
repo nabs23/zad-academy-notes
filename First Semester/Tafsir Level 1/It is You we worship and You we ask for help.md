@@ -1,3 +1,5 @@
+Back: [[Tafsir Level 1]] | Next: [[Guide us to the straight path...]]
+
 ## **Explanation of Verse: [It is You we worship and You we ask for help]**
 
 ### **Key Concepts**
@@ -62,3 +64,5 @@
 4. **Explain why, if a man prays Fajr with three rakʿahs, seeking to draw closer to Allah, his prayer is not valid.**  
    - **Answer**:  
      - The act is not valid because it contradicts the Sunnah. Worship must align with the teachings of the Prophet ﷺ to be accepted.  
+
+Back: [[Tafsir Level 1]] | Next: [[Guide us to the straight path...]]

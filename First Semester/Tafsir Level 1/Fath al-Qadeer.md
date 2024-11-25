@@ -1,3 +1,5 @@
+Back: [[Tafsir Level 1]] | Next: [[Books of Tafsir of Which One Should Be Cautious]]
+
 ## **Fath al-Qadeer**
 
 - **Author**:  
@@ -30,3 +32,5 @@
      - **Ad-Durr al-Manthur (as-Suyuti)**: Compilation of narrations without commentary.  
      - **Al-Jamiʿ li Ahkam al-Qur'an (al-Qurtubi)**: Focuses on legal rulings (ahkam) with strong evidence.  
      - **Fath al-Qadeer (ash-Shawkani)**: Combines linguistic, rational, and fiqhi analysis. 
+
+Back: [[Tafsir Level 1]] | Next: [[Books of Tafsir of Which One Should Be Cautious]]

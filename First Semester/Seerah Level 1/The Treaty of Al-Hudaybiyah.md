@@ -1,4 +1,4 @@
-Back: [[Seerah Level 1]]  
+Back: [[Seerah Level 1]] | Next: [[Bay‘at ar-Ridwan]]
 
 - **When**: **Dhul-Qa’dah, 6 AH**.  
 - **Where**: Near **Hudaybiyah**, close to Makkah.  
@@ -51,5 +51,4 @@ Back: [[Seerah Level 1]]
    - The treaty set the stage for **Da’wah**, resulting in many embracing Islam within two years.  
 
 ---
-
-Back: [[Seerah Level 1]]  
+Back: [[Seerah Level 1]] | Next: [[Bay‘at ar-Ridwan]]

@@ -1,3 +1,4 @@
+Back: [[Semester 1 Notes]]
 ## Unit 1: Introduction
 - [[Definition of ʿIlm al-Tafsir]]
 - [[The Foundations of ʿIlm al-Tafsir]]
@@ -17,18 +18,18 @@
 	5. **[[Tafsir of the Scholars]]**:
 	   - Later scholars compiled and expanded tafsir using earlier sources and linguistic, legal, and rhetorical analysis.
    - Famous Books of Tafsir
-	1. **[[Jamiʿ al-Bayan]]**:  
-	   - By Muhammad ibn Jareer at-Tabari.  
-	2. **[[Tafsir al-Qur'an al-Azeem]]**:  
-	   - By Ismail ibn Umar ibn Kathir (Tafsir Ibn Kathir). 
-	3. **[[Maʿalim at-Tanzeel]]**:  
-	   - By Al-Husayn ibn Mas'ud al-Baghawi.  
-	4. **[[Ad-Durr al-Manthur fi’t-Tafsir bi’l-Ma’thur]]**:  
-	   - By Jalal ad-Deen as-Suyuti. 
-	5. **[[Al-Jamiʿ li Ahkam al-Qur'an]]**:  
-	   - By Muhammad ibn Ahmad al-Qurtubi.  
-	6. **[[Fath al-Qadeer]]**:  
-	   - By Muhammad ibn Ali ash-Shawkani.
+		1. **[[Jamiʿ al-Bayan]]**:  
+		   - By Muhammad ibn Jareer at-Tabari.  
+		2. **[[Tafsir al-Qur'an al-Azeem]]**:  
+		   - By Ismail ibn Umar ibn Kathir (Tafsir Ibn Kathir). 
+		3. **[[Maʿalim at-Tanzeel]]**:  
+		   - By Al-Husayn ibn Mas'ud al-Baghawi.  
+		4. **[[Ad-Durr al-Manthur fi’t-Tafsir bi’l-Ma’thur]]**:  
+		   - By Jalal ad-Deen as-Suyuti. 
+		5. **[[Al-Jamiʿ li Ahkam al-Qur'an]]**:  
+		   - By Muhammad ibn Ahmad al-Qurtubi.  
+		6. **[[Fath al-Qadeer]]**:  
+		   - By Muhammad ibn Ali ash-Shawkani.
    - [[Books of Tafsir of Which One Should Be Cautious]]
    - [[Methodologies of Tafsir]]
 

@@ -1,3 +1,5 @@
+Back: [[Tafsir Level 1]] | Next: [[The Final Verses of Surat al-Baqarah]]
+
 ## **Ayat al-Kursi (Al-Baqarah: 255)**
 
 ### **The Verse**
@@ -114,3 +116,6 @@
 
 4. **This verse affirms five names of Allah. They are:**  
    - Allah, Al-Hayy, Al-Qayyum, Al-Aliyy, Al-Azeem.  
+
+
+Back: [[Tafsir Level 1]] | Next: [[The Final Verses of Surat al-Baqarah]]

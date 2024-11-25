@@ -1,3 +1,5 @@
+Back: [[Tafsir Level 1]] | Next: [[Ayat al-Kursi]]
+
 ## **Explanation of Verses: [Guide us to the straight path...]**
 
 ### **Key Concepts**  
@@ -19,7 +21,7 @@
 2. **[The path of those upon whom You have bestowed favor]**  
    - Describes the straight path.  
    - Those blessed by Allah are mentioned in:  
-     > *"And whoever obeys Allah and the Messenger - those will be with the ones upon whom Allah has bestowed favor of the prophets, the steadfast affirmers of truth, the martyrs, and the righteous."*  
+     *"And whoever obeys Allah and the Messenger - those will be with the ones upon whom Allah has bestowed favor of the prophets, the steadfast affirmers of truth, the martyrs, and the righteous."*  
      (Surah An-Nisa 4:69)
 
 3. **[Not of those who have evoked [Your] anger or of those who are astray]**  
@@ -76,3 +78,5 @@ Surah al-Fatihah encompasses fundamental principles of Islam:
 4. **Correct the following statements**:  
    - It **is** valid to describe the Jews as misguided, but their primary trait is divine anger.  
    - The believer needs **both types** of guidance: knowing the truth and acting upon it.  
+
+Back: [[Tafsir Level 1]] | Next: [[Ayat al-Kursi]]

@@ -1,3 +1,4 @@
+Back: [[Tafsir Level 1]] | Next: [[The Foundations of ʿIlm al-Tafsir]]
 ### **1. Definition of Tafsir in Linguistic Terms**
 - **Linguistic meaning**:
   - Derived from the Arabic root **"fasr"**, meaning **clarification** and **explanation**.
@@ -53,3 +54,5 @@
   - Misinterpreting the Qur'an or Sunnah in ways that:
     - Contradict clear evidence.
     - Are based on personal desires without sound scholarly principles.
+
+Back: [[Tafsir Level 1]] | Next: [[The Foundations of ʿIlm al-Tafsir]]

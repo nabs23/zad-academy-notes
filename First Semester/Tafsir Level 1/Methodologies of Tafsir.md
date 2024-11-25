@@ -1,3 +1,5 @@
+Back: [[Tafsir Level 1]] | Next: [[Surat al-Fatihah]]
+
 ### **1. Tafsir Based on Reports (Narration)**  
 - Relies strictly on narrated reports about the meaning of verses, avoiding personal interpretation.  
 - Divided into four categories:  
@@ -61,3 +63,5 @@
    - **Answer**:  
      - Yes, it is possible if based on sound academic principles, knowledge of Arabic, usul al-fiqh, and adherence to Islamic teachings.  
      - Allah condemns speaking without knowledge (Surah Al-Isra 17:36), implying that speaking with knowledge is permissible. 
+
+Back: [[Tafsir Level 1]] | Next: [[Surat al-Fatihah]]

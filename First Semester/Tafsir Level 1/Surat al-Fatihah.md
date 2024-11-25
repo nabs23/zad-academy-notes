@@ -1,3 +1,5 @@
+Back: [[Tafsir Level 1]] | Next: [[All praise is due to Allah, Lord of the worlds]]
+
 ### **General Information**
 - **Makki Surah**:  
   - Revealed before the Hijrah.  
@@ -55,3 +57,6 @@
 3. **Worshipping Allah Alone and Seeking His Help Alone**.  
 4. **Asking for Guidance**:  
    - Specifically, to the straight path (the path of those who have earned Allah's favor). 
+
+
+Back: [[Tafsir Level 1]] | Next: [[All praise is due to Allah, Lord of the worlds]]

@@ -1,3 +1,4 @@
+Back: [[Tafsir Level 1]] 
 ### **Detailed Explanation**  
 
 1. **[Allah does not charge a soul except [with that within] its capacity...]**  
@@ -104,3 +105,5 @@
 
    b. *Whoever does any prohibited action out of ignorance is sinning.*  
    - **False (X)**  
+
+Back: [[Tafsir Level 1]] 

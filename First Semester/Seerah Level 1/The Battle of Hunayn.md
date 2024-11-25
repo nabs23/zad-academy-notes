@@ -1,3 +1,5 @@
+Back: [[Seerah Level 1]] | Next: [[The Campaign of Tabuk (The Campaign of Hardship)]]
+
 ### **Date and Context**  
 - **Date**: Shawwal, 8 AH (after the Conquest of Makkah).  
 - **Context**:  
@@ -60,3 +62,6 @@
    - The Prophet ﷺ’s unwavering resolve reinforced his leadership and inspired the Muslim army to overcome fear and chaos.  
 
 This battle served as a pivotal moment, teaching the Muslims reliance on Allah and reaffirming the Prophet ﷺ’s leadership in the face of adversity.
+
+
+Back: [[Seerah Level 1]] | Next: [[The Campaign of Tabuk (The Campaign of Hardship)]]

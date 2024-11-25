@@ -1,4 +1,5 @@
-Back: [[Seerah Level 1]]  
+Back: [[Seerah Level 1]] | Next: [[The Battle of Al-Khandaq (The Trench) or Al-Ahzab (The Confederates)]]
+
 ## **The Battle of Uhud**  
 - **When**: **3 AH**.  
 - **Cause**:  
@@ -47,5 +48,4 @@ Back: [[Seerah Level 1]]
    - A reminder that victory comes only through Allah’s support and obedience.
 
 ---
-
-Back: [[Seerah Level 1]]  
+Back: [[Seerah Level 1]] | Next: [[The Battle of Al-Khandaq (The Trench) or Al-Ahzab (The Confederates)]]

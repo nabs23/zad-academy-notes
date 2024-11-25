@@ -1,3 +1,5 @@
+Back: [[Seerah Level 1]] | Next: [[‘Umrat al-Qada (The Compensatory ‘Umrah)]]
+
 ### **Background**  
 - Following the peace treaty of **Al-Hudaybiyah**, the Prophet ﷺ prepared for the campaign against **Khaybar**.  
 - The **Jews of Khaybar**:  
@@ -36,3 +38,5 @@
 1. **The Strength of the Muslims**: The campaign solidified the Muslims' presence in the region and eliminated a significant threat.  
 2. **Justice in Conquest**: The Prophet ﷺ emphasized fairness, even during war.  
 3. **Respect for Religious Freedom**: Returning the Torah reflected the Prophet's ﷺ commitment to **respecting sacred traditions** of others.  
+
+Back: [[Seerah Level 1]] | Next: [[‘Umrat al-Qada (The Compensatory ‘Umrah)]]

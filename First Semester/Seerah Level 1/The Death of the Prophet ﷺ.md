@@ -1,3 +1,5 @@
+Back: [[Seerah Level 1]] | Next: [[The Virtue of Sending Blessings (Salawat) Upon the Prophet ﷺ]]
+
 ### **A. Timeline and Events Leading to the Prophet’s Passing**  
 
 1. **Onset of Illness**:  
@@ -19,11 +21,11 @@
 1. **Final Moments**:  
    - The Prophet ﷺ passed away in the arms of **Aisha (RA)**.  
    - His final words were:  
-     > **“With the Highest Companion (Allah).”**  
+     **“With the Highest Companion (Allah).”**  
    - **Fatimah (RA)** wept and said:  
-     > “O my father, who answered the call of his Lord;  
-     > O my father, Jannat al-Firdaws is his final abode;  
-     > O my father, to Jibreel we announce the news of his death.”  
+     “O my father, who answered the call of his Lord;  
+     O my father, Jannat al-Firdaws is his final abode;  
+     O my father, to Jibreel we announce the news of his death.”  
 
 2. **Impact on the Ummah**:  
    - His death marked the end of prophethood, but his **message endures until the Day of Judgment**.  
@@ -38,7 +40,7 @@
 
 2. **Reaction of Abu Bakr (RA)**:  
    - **Steadfastness and wisdom**: He calmed the companions, reminding them:  
-     > **“Whoever worshipped Muhammad, know that Muhammad is dead. And whoever worshipped Allah, know that Allah is alive and will never die.”** (*Surah Aal ‘Imran 3:144*)  
+     **“Whoever worshipped Muhammad, know that Muhammad is dead. And whoever worshipped Allah, know that Allah is alive and will never die.”** (*Surah Aal ‘Imran 3:144*)  
 
 3. **Reaction of Umar (RA)**:  
    - Initially, Umar (RA) refused to believe the news and was overcome with emotion.  
@@ -55,9 +57,9 @@ May Allah send blessings and peace upon him, the truthful, sincere, and honest M
 
 ### **Fatimah’s (RA) Words of Grief**  
 - **Fatimah (RA)**, the beloved daughter of the Prophet ﷺ, expressed her sorrow with the following words:  
-  > **“O my father, who answered the call of his Lord;  
-  > O my father, Jannat al-Firdaws is his final abode;  
-  > O my father, to Jibreel we announce the news of his death.”**  
+  **“O my father, who answered the call of his Lord;  
+  O my father, Jannat al-Firdaws is his final abode;  
+  O my father, to Jibreel we announce the news of his death.”**  
 
 ### **The Prophet’s Legacy**  
 - The **life of the Messenger ﷺ ended**, but his **message lives on**.  
@@ -69,7 +71,9 @@ May Allah send blessings and peace upon him, the truthful, sincere, and honest M
 
 ### **A Lasting Reminder**  
 - **Praise and peace upon the Prophet ﷺ**:  
-  > May Allah send blessings and peace upon His Prophet, the truthful, sincere, and honest one.  
-  > Praise be to Allah, Lord of the worlds.  
+  May Allah send blessings and peace upon His Prophet, the truthful, sincere, and honest one.  
+  Praise be to Allah, Lord of the worlds.  
 
 This marked the end of the greatest life ever lived, but the **legacy and teachings of the Prophet ﷺ remain eternal**.
+
+Back: [[Seerah Level 1]] | Next: [[The Virtue of Sending Blessings (Salawat) Upon the Prophet ﷺ]]

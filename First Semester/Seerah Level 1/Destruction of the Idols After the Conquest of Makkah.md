@@ -1,3 +1,5 @@
+Back: [[Seerah Level 1]] | Next: [[The Battle of Hunayn]]
+
 ### **1. Amr ibn al-As (RA) Destroys the Idol of Suwa**  
 - **Idol Location**: Suwa, belonging to the tribe of Hudhayl.  
 - **Events**:  
@@ -27,3 +29,6 @@
    - Idolatry, deeply rooted in pre-Islamic Arabia, was decisively ended under the leadership of the Prophet ﷺ.
 
 These events emphasized the completion of the Prophet’s ﷺ mission to guide people to Allah’s worship alone.
+
+
+Back: [[Seerah Level 1]] | Next: [[The Battle of Hunayn]]

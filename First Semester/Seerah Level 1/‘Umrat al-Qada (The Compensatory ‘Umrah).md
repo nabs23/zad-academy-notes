@@ -1,3 +1,5 @@
+Back: [[Seerah Level 1]] | Next: [[The Campaign of Mu’tah]]
+
 ### **When**  
 - **Dhul-Qa’dah, 7 AH**, a few months after the Prophet ﷺ returned from the Campaign of Khaybar.
 
@@ -40,3 +42,5 @@
 - **Trust in Allah’s Plan**: The Prophet ﷺ’s trust in Allah’s promise led to the fulfillment of the vision.  
 - **Peaceful Victory**: This event marked a turning point in relations with Quraysh and highlighted the growing power of the Muslims.  
 - **Strength in Unity**: The Muslims' resilience left a lasting impression on Quraysh, paving the way for future conquests.  
+
+Back: [[Seerah Level 1]] | Next: [[The Campaign of Mu’tah]]

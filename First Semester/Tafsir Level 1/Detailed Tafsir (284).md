@@ -1,3 +1,5 @@
+Back: [[Tafsir Level 1]] | Next: [[Detailed Explanation (285)]]
+
 ### **Detailed Tafsir (2:284)**  
 
 1. **[To Allah belongs whatever is in the heavens and whatever is in the earth]**  
@@ -54,3 +56,5 @@
 
 3. **How does this verse prove the oneness of divinity (Tawhid al-uluhiyyah)?**  
    - Allah’s sole control over all creation affirms that He alone deserves worship, as no one shares His sovereignty or power.  
+
+Back: [[Tafsir Level 1]] | Next: [[Detailed Explanation (285)]]

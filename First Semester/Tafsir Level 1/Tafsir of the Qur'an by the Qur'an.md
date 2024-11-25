@@ -1,3 +1,5 @@
+Back: [[Tafsir Level 1]] | Next: [[Tafsir of the Prophet ﷺ]]
+
 - **Definition**:  
   - Tafsir of the Qur'an by the Qur'an involves explaining certain parts of the Qur'an using other parts.  
   - Some verses are clear (**muhkamat**), while others require explanation (**mutashabihat**), which is provided within the Qur'an itself.
@@ -13,3 +15,5 @@
 
 - **Significance**:  
   - This method is the first and most reliable method of tafsir, as it ensures the explanation is directly from the Qur'an itself.
+
+Back: [[Tafsir Level 1]] | Next: [[Tafsir of the Prophet ﷺ]]

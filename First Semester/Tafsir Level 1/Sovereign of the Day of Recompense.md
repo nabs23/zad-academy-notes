@@ -1,3 +1,5 @@
+Back: [[Tafsir Level 1]] | Next: [[It is You we worship and You we ask for help]]
+
 ## **Explanation of Verse: [Sovereign of the Day of Recompense]**
 
 ### **Key Points**  
@@ -62,3 +64,5 @@
      - Islam is the only true religion.  
      - The Qur'an states:  
        *"Indeed, the religion [ad-deen] in the sight of Allah is Islam."* (Surah Aal Imran 3:19)  
+
+Back: [[Tafsir Level 1]] | Next: [[It is You we worship and You we ask for help]]

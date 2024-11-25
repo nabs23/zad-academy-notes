@@ -1,3 +1,5 @@
+Back: [[Seerah Level 1]] | Next: [[Destruction of the Idols After the Conquest of Makkah]]
+
 **Date**: Ramadan, 8 AH  
 
 ### **Background**  
@@ -59,3 +61,6 @@
 ### **Key Lessons**  
 - The conquest exemplified the Prophet’s ﷺ wisdom, strategy, and adherence to the principles of justice and mercy.  
 - It demonstrated the importance of alliances, strategic preparation, and reliance on Allah for success.
+
+
+Back: [[Seerah Level 1]] | Next: [[Destruction of the Idols After the Conquest of Makkah]]

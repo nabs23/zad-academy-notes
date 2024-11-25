@@ -1,3 +1,5 @@
+Back: [[Tafsir Level 1]] | Next: [[Detailed Explanation]]
+
 ### **Detailed Explanation (2:285)**  
 
 1. **[The Messenger has believed in what was revealed to him from his Lord, and [so have] the believers...]**  
@@ -51,3 +53,5 @@
      - Similar verse: *(Say, “Whether you conceal what is in your hearts or reveal it, Allah knows it...)* [3:29].  
    - **Verse 2**: *(And they say, ‘We hear and we obey’)* [2:285].  
      - Similar verse: *(The only statement of [true] believers when they are called to Allah and His Messenger...)* [24:51].  
+
+Back: [[Tafsir Level 1]] | Next: [[Detailed Explanation]]

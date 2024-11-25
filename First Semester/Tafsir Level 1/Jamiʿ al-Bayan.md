@@ -1,3 +1,5 @@
+Back: [[Tafsir Level 1]] | Next: [[Tafsir al-Qur'an al-Azeem]]
+
 ## **Jamiʿ al-Bayan fi Taʾweel al-Qurʾan**
 
 - **Author**:  
@@ -21,3 +23,5 @@
 - **Criticism**:  
   - Contains narrations of **Isra’iliyyat** (reports from Jewish sources), including:  
     - Kaʿb al-Ahbar, Wahb ibn Munabbih, Ibn Jurayj, As-Suddi, and others.  
+
+Back: [[Tafsir Level 1]] | Next: [[Tafsir al-Qur'an al-Azeem]]

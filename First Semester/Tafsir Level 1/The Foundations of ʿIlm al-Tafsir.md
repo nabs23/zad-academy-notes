@@ -1,3 +1,5 @@
+Back: [[Tafsir Level 1]] | Next: [[Tafsir of the Qur'an by the Qur'an]]
+
 ### **ʿIlm al-Tafsir is Based On:**
 1. **The Qur'an**:  
    The primary source of tafsir.
@@ -30,3 +32,5 @@
 ### **2. How could knowledge of the modes of recitation be useful in the field of tafsir?**
 - **Answer**:  
   Knowledge of **Qira’at** helps in understanding variations in meaning, word choice, and pronunciation, which can clarify different interpretations and rulings derived from the Qur'an.
+
+Back: [[Tafsir Level 1]] | Next: [[Tafsir of the Qur'an by the Qur'an]]

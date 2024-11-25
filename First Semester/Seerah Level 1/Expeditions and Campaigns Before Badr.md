@@ -1,4 +1,4 @@
-Back: [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[The Battle of Badr]]
 
 ### **1. List of Expeditions and Campaigns**  
 1. **Expedition of Sayf al-Bahr** (1 AH):  
@@ -44,5 +44,4 @@ Back: [[Seerah Level 1]]
   - **“Fight in the way of Allah those who fight you, but do not transgress. Indeed, Allah does not like transgressors.”** (*Surah Al-Baqarah 2:190*).  
 
 ---
-
-Back: [[Seerah Level 1]]  
+Back: [[Seerah Level 1]] | Next: [[The Battle of Badr]]

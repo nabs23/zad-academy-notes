@@ -1,3 +1,5 @@
+Back: [[Tarbiyah Islamiyah 1]] | Next: [[The Rights of the Sahabah (Companions of the Prophet ﷺ)]]
+
 ##### **Definition and Importance**  
 - **Definition**: The Prophet (ﷺ) has rights over his ummah, including believing in him, venerating him, supporting him, following his teachings, and emulating his example.  
 - **Importance**:  
@@ -139,3 +141,5 @@
 
 5. **Being With Him in Paradise**:  
    - Loving the Prophet (ﷺ) and following him grants closeness to him in Jannah.  
+
+Back: [[Tarbiyah Islamiyah 1]] | Next: [[The Rights of the Sahabah (Companions of the Prophet ﷺ)]]

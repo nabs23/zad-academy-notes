@@ -1,3 +1,5 @@
+Back: [[Tafsir Level 1]] | Next: [[Tafsir of Ayat al-Kursi]]
+
 ### **Virtues of Ayat al-Kursi**  
 - **The Greatest Verse**:  
   - Ubay ibn Ka'b (RA) narrated that the Prophet ﷺ asked him about the greatest verse in the Book of Allah. Ubay replied, "Allah and His Messenger know best." When asked multiple times, Ubay said, *Ayat al-Kursi*. The Prophet ﷺ affirmed this, saying:  
@@ -32,3 +34,6 @@ nothing will stand between him and entering Paradise except his death."*
   - Allah’s exclusive divinity is stated in *"Allah - there is no deity except Him"*.  
 - **Refutation of Polytheism**:  
   - Rejects the belief in other gods or deities besides Allah.  
+
+
+Back: [[Tafsir Level 1]] | Next: [[Tafsir of Ayat al-Kursi]]

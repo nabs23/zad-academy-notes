@@ -1,3 +1,5 @@
+Back: [[Tafsir Level 1]] | Next: [[Methodologies of Tafsir]]
+
 ## **Books of Tafsir of Which One Should Be Cautious**
 
 ### **1. Al-Kashf wa’l-Bayan ‘an Tafsir al-Qur’an**  
@@ -39,3 +41,5 @@
 2. **What do you know about tafsir based on Sufi symbolism, and why is it blameworthy?**  
    - **Tafsir based on Sufi symbolism** often seeks hidden meanings disconnected from the apparent meaning of the text.  
    - It is blameworthy because it leads to interpretations far removed from the truth and unsupported by evidence.  
+
+Back: [[Tafsir Level 1]] | Next: [[Methodologies of Tafsir]]

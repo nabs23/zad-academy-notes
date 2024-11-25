@@ -1,3 +1,5 @@
+Back: [[Tafsir Level 1]] | Next: [[Fath al-Qadeer]]
+
 ## **Ad-Durr al-Manthur fi’t-Tafsir bi’l-Ma’thur**
 
 - **Author**:  
@@ -28,3 +30,5 @@
 
 2. **What stands out most for you with regard to the tafsir Ad-Durr al-Manthur?**  
    - Its reliance on narrations alone, preserving the sayings of the Salaf and classical scholars without personal interpretation. 
+
+Back: [[Tafsir Level 1]] | Next: [[Fath al-Qadeer]]

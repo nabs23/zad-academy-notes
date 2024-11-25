@@ -1,4 +1,4 @@
-Back: [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[The Battle of Uhud]]
 
 ## **The Battle of Badr**  
 - **When**: Ramadan, **2 AH**.  
@@ -42,5 +42,4 @@ Back: [[Seerah Level 1]]
    - Muslim Martyrs: **14 Companions (RA)**.
 
 ---
-
-Back: [[Seerah Level 1]]  
+Back: [[Seerah Level 1]] | Next: [[The Battle of Uhud]]

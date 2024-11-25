@@ -1,3 +1,5 @@
+Back: [[Tarbiyah Islamiyah 1]] | Next: [[The Rights of the Prophet Muhammad (ﷺ) Over His Ummah]]
+
 ##### **Definition and Importance**  
 - **Definition**: The rights of Allah (ﷻ) over His slaves are to worship Him alone without associating partners with Him, obey Him, and fulfill the purpose of creation.  
 - **Importance**:  
@@ -116,3 +118,6 @@
 3. Creates love for Allah and hope in His mercy.  
 4. Encourages sincerity in deeds (niyyah).  
 5. Fosters gratitude and contentment with Allah’s decrees.  
+
+
+Back: [[Tarbiyah Islamiyah 1]] | Next: [[The Rights of the Prophet Muhammad (ﷺ) Over His Ummah]]

@@ -1,4 +1,4 @@
-Back: [[Seerah Level 1]]
+Back: [[Seerah Level 1]] | Next: [[The Treaty of Al-Hudaybiyah]]
 
 - **When**: **5 AH**, in Shawwal.  
 - **Cause**:  
@@ -39,5 +39,4 @@ Back: [[Seerah Level 1]]
    - Allah praised the believers in **Surah Al-Ahzab 33:22–25**, highlighting their commitment and trust in Allah.  
 
 ---
-
-Back: [[Seerah Level 1]]  
+Back: [[Seerah Level 1]] | Next: [[The Treaty of Al-Hudaybiyah]]

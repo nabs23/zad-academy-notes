@@ -1,3 +1,5 @@
+Back: [[Seerah Level 1]] | Next: [[The Conquest of Makkah]]
+
 **Date**: Jumada al-Ula, 8 AH  
 
 ### **Cause of the Campaign**  
@@ -51,3 +53,5 @@ If all three were martyred, the Muslims were to **choose their leader.**
 ### **Reflection**  
 - The Campaign of Mu’tah underscored the Muslims’ resolve, discipline, and ability to maintain unity under adverse conditions.  
 - It set the stage for future encounters with the Byzantine Empire.  
+
+Back: [[Seerah Level 1]] | Next: [[The Conquest of Makkah]]

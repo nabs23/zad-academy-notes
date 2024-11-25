@@ -1,3 +1,5 @@
+Back: [[Tafsir Level 1]] | Next: [[Ad-Durr al-Manthur fi’t-Tafsir bi’l-Ma’thur]]
+
 ## **Maʿalim at-Tanzeel (Tafsir al-Baghawi)**
 
 - **Author**:  

@@ -1,3 +1,5 @@
+Back: [[Tafsir Level 1]] | Next: [[Detailed Tafsir (284)]]
+
 - When the verse **[To Allah belongs whatever is in the heavens and whatever is in the earth...] (2:284)** was revealed, the Companions of the Prophet ﷺ became distressed.  
 - They approached the Prophet ﷺ, saying:  
   *“O Messenger of Allah, we have been commanded to do deeds we can handle, such as prayer, fasting, jihad, and charity. Now this verse has come, and it is beyond our capacity.”*  
@@ -43,3 +45,6 @@ Abu Mas’ud (RA) narrated that the Prophet ﷺ said:
    - Reciting even a single letter of these verses earns reward.  
 3. **Protection and Sufficiency**:  
    - Recitation at night ensures protection and sufficiency for the believer.  
+
+
+Back: [[Tafsir Level 1]] | Next: [[Detailed Tafsir (284)]]

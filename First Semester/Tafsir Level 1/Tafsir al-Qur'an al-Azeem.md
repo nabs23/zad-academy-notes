@@ -1,3 +1,5 @@
+Back: [[Tafsir Level 1]] | Next: [[Maʿalim at-Tanzeel]]
+
 - **Author**:  
   - Imad ad-Deen Abi’l-Fida Ismail ibn Umar ibn Katheer (Ibn Kathir).  
   - Died in **774 AH**.
@@ -24,3 +26,6 @@
    - Both rely on narrations (riwayat) and the methodology of the Salaf.  
    - Ibn Jareer includes **Isra’iliyyat** narrations without much critique.  
    - Ibn Kathir critiques **Isra’iliyyat** and warns against their flaws.  
+
+
+Back: [[Tafsir Level 1]] | Next: [[Maʿalim at-Tanzeel]]

@@ -1,3 +1,5 @@
+Back: [[Seerah Level 1]] | Next: [[The Death of the Prophet ﷺ]]
+
 ### **A. Key Events of the Farewell Pilgrimage**  
 
 1. **Departure from Madinah**:  
@@ -71,3 +73,5 @@
    - Appointed **Usamah ibn Zayd** as commander of the 3,000-strong army.  
 
 2. The campaign was delayed due to the illness of the Prophet ﷺ.  
+
+Back: [[Seerah Level 1]] | Next: [[The Death of the Prophet ﷺ]]
