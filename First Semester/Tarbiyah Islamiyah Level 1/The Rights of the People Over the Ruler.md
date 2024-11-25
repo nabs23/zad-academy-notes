@@ -1,3 +1,4 @@
+Back: [[Tarbiyah Islamiyah 1]]
 ### **The Rights of the People Over the Ruler**
 
 In Islam, rulers are entrusted with authority as a trust (amanah) to uphold justice, safeguard the religion, and manage the affairs of the ummah. This responsibility is not a privilege but a heavy burden for which rulers will be held accountable on the Day of Judgment.
@@ -90,3 +91,5 @@ In Islam, rulers are entrusted with authority as a trust (amanah) to uphold just
 
 ### **Conclusion**  
 The rights of the people over the ruler in Islam highlight the ruler's accountability to Allah and the ummah. The ruler must safeguard the religion, promote justice, fulfill the needs of the weak, and be sincere and kind in leadership. When rulers fulfill their responsibilities, they ensure the prosperity of the ummah and maintain the balance and justice prescribed by Allah.
+
+Back: [[Tarbiyah Islamiyah 1]]

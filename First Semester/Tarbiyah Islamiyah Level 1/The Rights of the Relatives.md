@@ -1,3 +1,5 @@
+Back: [[Tarbiyah Islamiyah 1]] | Next: [[The Rights of the Neighbours]]
+
 ### The Rights of Relatives  
 
 #### **Introduction**  
@@ -120,3 +122,6 @@
 ### **Conclusion**  
 - Upholding ties of kinship is a cornerstone of Islamic values that strengthens family and societal bonds.  
 - Severing these ties brings Allah’s wrath, punishment, and deprives one of blessings in this world and the Hereafter.  
+
+
+Back: [[Tarbiyah Islamiyah 1]] | Next: [[The Rights of the Neighbours]]

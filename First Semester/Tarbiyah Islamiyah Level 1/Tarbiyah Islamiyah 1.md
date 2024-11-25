@@ -18,7 +18,7 @@ Back: [[Semester 1 Notes]]
 - **[[The Rights of Children Over Their Parents]]**  
     Details the responsibilities of parents in providing love, education, and a proper Islamic upbringing for their children.
     
-- **[[The Rights of the Spouses]]**  
+- **[[The Rights of Spouses]]**  
     Explains the mutual rights between husband and wife to ensure a harmonious and stable marital relationship.
     
 - **[[The Rights of the Wife Over Her Husband]]**  

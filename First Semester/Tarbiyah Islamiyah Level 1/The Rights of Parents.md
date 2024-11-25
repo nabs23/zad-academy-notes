@@ -1,3 +1,5 @@
+Back: [[Tarbiyah Islamiyah 1]] | Next: [[The Rights of Children Over Their Parents]]
+
 ##### **Definition and Importance**  
 - Parents hold a unique status in Islam due to their sacrifices, care, and upbringing of their children.  
 - Allah (ﷻ) has emphasized their rights alongside His own rights:  
@@ -121,3 +123,5 @@
 
 5. **It Is One of the Gravest Sins**:  
    - It is listed alongside shirk and severing ties of kinship. *(Ahmad and Tirmidhi)*  
+
+Back: [[Tarbiyah Islamiyah 1]] | Next: [[The Rights of Children Over Their Parents]]

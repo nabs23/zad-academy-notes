@@ -1,3 +1,5 @@
+Back: [[Tarbiyah Islamiyah 1]] | Next: [[The Rights of the People Over the Ruler]]
+
 Islamic governance emphasizes mutual rights and responsibilities between rulers and their subjects, aiming to uphold justice, protect the religion, and manage worldly affairs. Rulership is seen as a burden and a responsibility, not a privilege, requiring cooperation from both the ruler and the people.
 
 ---
@@ -104,3 +106,5 @@ Islamic governance emphasizes mutual rights and responsibilities between rulers 
 
 ### **Conclusion**  
 The relationship between rulers and subjects in Islam is based on mutual responsibility, with the ruler tasked with justice and welfare and the subjects obligated to obey, advise sincerely, and support him in lawful matters. These principles aim to maintain harmony, stability, and justice in society.
+
+Back: [[Tarbiyah Islamiyah 1]] | Next: [[The Rights of the People Over the Ruler]]

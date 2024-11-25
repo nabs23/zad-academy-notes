@@ -1,3 +1,5 @@
+Back: [[Tarbiyah Islamiyah 1]] | Next: [[The Rights of the Relatives]]
+
 #### **Introduction**
 - Islam ensures that wives are granted rights that maintain their **faith**, **dignity**, and **well-being**.  
 - Allah (ﷻ) says:  
@@ -97,3 +99,6 @@ The wife’s rights are categorized into two types:
 - **Allah’s Command:**  
   *“Fear Allah with regard to women, for you have taken them as a trust from Allah.”*  
   *(Muslim)*  
+
+
+Back: [[Tarbiyah Islamiyah 1]] | Next: [[The Rights of the Relatives]]

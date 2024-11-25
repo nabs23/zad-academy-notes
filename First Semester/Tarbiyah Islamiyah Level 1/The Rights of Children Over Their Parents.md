@@ -1,3 +1,5 @@
+Back: [[Tarbiyah Islamiyah 1]] | Next: [[The Rights of Spouses]]
+
 ##### **Definition and Importance**  
 - Children are a trust from Allah (ﷻ) and a responsibility upon parents.  
 - Parents will be questioned about how they raised their children before children are questioned about their treatment of parents.  
@@ -78,3 +80,5 @@
 #### **Consequences of Neglecting Children’s Rights**  
 - Failing to fulfill children’s rights results in children growing up unguided, causing harm to themselves and society.  
 - Parents are accountable for the misdeeds of their children if negligence is the cause.  
+
+Back: [[Tarbiyah Islamiyah 1]] | Next: [[The Rights of Spouses]]

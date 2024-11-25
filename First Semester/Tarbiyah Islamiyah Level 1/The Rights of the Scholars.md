@@ -1,3 +1,5 @@
+Back: [[Tarbiyah Islamiyah 1]] | Next: [[The Rights of Parents]]
+
 ##### **Definition and Importance**  
 - **Definition**: Scholars are the heirs of the Prophets, entrusted by Allah to preserve, teach, and protect the religion of Islam and the laws of Sharia.  
 - **Importance**:  
@@ -86,3 +88,6 @@
 5. **Issuing Rulings Without Knowledge**: Causes harm and confusion.  
 6. **Diminishing the Sunnah**: The absence of scholars leads to the prevalence of innovation.  
 7. **Confusion Between Truth and Falsehood**: Misguides the common people.  
+
+
+Back: [[Tarbiyah Islamiyah 1]] | Next: [[The Rights of Parents]]

@@ -1,3 +1,5 @@
+Back: [[Tarbiyah Islamiyah 1]] | Next: [[The Rights of the Rulers and Subjects]]
+
 ### **The Rights of Workers and Bosses**
 
 Work is an integral part of life and a means for individuals to contribute to society while earning a livelihood. Islam emphasizes the mutual rights and responsibilities between workers and bosses, guided by justice, compassion, and accountability.
@@ -111,3 +113,6 @@ Work is an integral part of life and a means for individuals to contribute to so
 
 ### **Summary**  
 Islam establishes a balanced framework of rights and responsibilities for workers and bosses. Workers are entitled to fair treatment, timely wages, and respect, while they must exhibit honesty and diligence. Employers, on the other hand, are accountable for their workers’ well-being and ensuring justice in their dealings. Both parties must fulfill their obligations to create a just and harmonious working relationship.
+
+
+Back: [[Tarbiyah Islamiyah 1]] | Next: [[The Rights of the Rulers and Subjects]]

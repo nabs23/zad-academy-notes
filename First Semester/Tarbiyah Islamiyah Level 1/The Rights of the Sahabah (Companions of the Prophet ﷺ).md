@@ -1,4 +1,4 @@
-Back: [[Tarbiyah Islamiyah 1]] | Next: [[The Rights of the Sahabah (Companions of the Prophet ﷺ)]]
+Back: [[Tarbiyah Islamiyah 1]] | Next: [[The Rights of the Scholars]]
 
 ##### **Definition and Importance**  
 - The **Sahabah (رضي الله عنهم)** are the best of humanity after the Prophets. They were chosen by Allah (ﷻ) to accompany the Prophet Muhammad (ﷺ), support him, and convey Islam to the world.  
@@ -67,4 +67,4 @@ Back: [[Tarbiyah Islamiyah 1]] | Next: [[The Rights of the Sahabah (Companions o
 3. Risk of disbelief (kufr) and hypocrisy for those who hate or curse the Sahabah, as per the warnings in the Sunnah.  
 
 
-Back: [[Tarbiyah Islamiyah 1]] | Next: [[The Rights of the Sahabah (Companions of the Prophet ﷺ)]]
+Back: [[Tarbiyah Islamiyah 1]] | Next: [[The Rights of the Scholars]]

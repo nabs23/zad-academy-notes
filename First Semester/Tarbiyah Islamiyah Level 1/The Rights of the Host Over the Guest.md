@@ -1,3 +1,5 @@
+Back: [[Tarbiyah Islamiyah 1]] | Next: [[The Rights of the Workers and Bosses]]
+
 #### **1. Seeking Permission to Enter**  
 - The guest should ask for permission before entering the host's home and should come at the appointed time.  
   - **Evidence from the Quran:**  
@@ -67,3 +69,6 @@
 
 ### **Summary**  
 The rights of hosts over guests emphasize mutual respect and moderation. Guests should be mindful of their behavior to avoid burdening or embarrassing the host, while hosts are encouraged to offer hospitality generously within their means. Both parties are urged to uphold the principles of kindness and consideration for one another.
+
+
+Back: [[Tarbiyah Islamiyah 1]] | Next: [[The Rights of the Workers and Bosses]]

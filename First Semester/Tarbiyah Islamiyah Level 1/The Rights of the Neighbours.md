@@ -1,3 +1,5 @@
+Back: [[Tarbiyah Islamiyah 1]] | Next: [[The Rights of Guests and Hosts]]
+
 #### **Introduction**  
 Islam emphasizes kindness and good treatment of neighbors as a core aspect of faith. Allah (ﷻ) and His Messenger (ﷺ) have repeatedly stressed fulfilling the rights of neighbors and warned against harming them.  
 
@@ -109,3 +111,6 @@ The scholars classify neighbors into three types:
 
 ### **Conclusion**  
 Maintaining good relations with neighbors strengthens the fabric of society and reflects true faith. Islam teaches patience with their shortcomings, avoidance of harm, and acts of generosity, even toward non-Muslims. Harming neighbors is a grave sin with severe consequences in this world and the Hereafter.
+
+
+Back: [[Tarbiyah Islamiyah 1]] | Next: [[The Rights of Guests and Hosts]]

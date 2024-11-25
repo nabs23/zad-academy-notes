@@ -1,3 +1,4 @@
+Back: [[Tarbiyah Islamiyah 1]] | Next: [[The Rights of the Wife Over Her Husband]]
 ##### **Introduction**  
 - Islam emphasizes the sanctity and stability of the marital relationship.  
 - Marriage is described as a **solemn covenant** (*mithaq ghaliz*) and a bond of love, mercy, and compassion.  
@@ -89,3 +90,5 @@
 #### **Additional Duties of the Wife**  
 - Avoid letting anyone into the husband’s home without his permission.  
 - Dress and behave modestly in public. *(Surah Al-Ahzab 33:33)*  
+
+Back: [[Tarbiyah Islamiyah 1]] | Next: [[The Rights of the Wife Over Her Husband]]

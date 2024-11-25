@@ -1,3 +1,5 @@
+Back: [[Tarbiyah Islamiyah 1]] | Next: [[The Rights of the Host Over the Guest]]
+
 #### **Introduction**  
 Hosting guests and respecting their rights is highly emphasized in Islam. It is an act of worship and a sign of faith that brings harmony among people and removes enmity. The Messenger of Allah (ﷺ) said:  
 > *“Whoever believes in Allah and the Last Day, let him honor his guest.”*  
@@ -64,3 +66,6 @@ The guest to be honored is the traveler in a city other than his own. Hosting lo
 
 ### **Conclusion**  
 Islamic teachings on hosting guests foster love, respect, and generosity within society. Both guests and hosts have rights and responsibilities, and fulfilling them leads to immense reward in this world and the Hereafter. The Prophet (ﷺ) exemplified kindness to guests, setting a standard for hospitality that Muslims are encouraged to follow.
+
+
+Back: [[Tarbiyah Islamiyah 1]] | Next: [[The Rights of the Host Over the Guest]]
