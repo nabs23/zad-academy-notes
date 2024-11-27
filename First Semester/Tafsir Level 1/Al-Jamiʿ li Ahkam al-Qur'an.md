@@ -1,34 +1,37 @@
 Back: [[Tafsir Level 1]] | Next: [[Fath al-Qadeer]]
 
-## **Ad-Durr al-Manthur fi’t-Tafsir bi’l-Ma’thur**
+## **Al-Jamiʿ li Ahkam al-Qur'an**
 
 - **Author**:  
-  - Jalal ad-Deen ibn Abi Bakr ibn Muhammad as-Suyuti.  
-  - Died in **911 AH**.
+  - Muhammad ibn Ahmad ibn Abi Bakr ibn Farah al-Qurtubi.  
+  - Died in **671 AH**.
 
 - **Overview**:  
-  - A tafsir focusing exclusively on **narrations (ma’thur)** from the Qur'an, Sunnah, and statements of the Salaf.  
+  - A significant tafsir known for its focus on **legal rulings** (ahkam) derived from the Qur'an.  
 
-- **Methodology**:  
-  - Quotes narrations without providing personal commentary.  
-  - Does not typically verify, amend, or alert readers to the reliability of the reports.  
-  - In rare cases, mentions the weakness of a report.  
-  - Sources include:  
-    - **Imam al-Bukhari**, **Muslim**, **Ahmad**, **an-Nasai**, **at-Tirmidhi**, **Abu Dawud**, **ad-Darimi**, and others.  
+- **Key Features**:  
+  - Does not show fanaticism toward any specific fiqhi madhhab (school of thought), though he was a Maliki.  
+  - **Methodology**:  
+    - Quotes a Qur'anic passage.  
+    - Raises and explains related issues and rulings derived from the text.  
+    - Discusses multiple viewpoints, choosing the strongest evidence.  
+    - Highlights differences of opinion on fiqhi matters and unusual interpretations of the verse.  
+  - Incorporates vast knowledge of:  
+    - **Fiqh (Islamic jurisprudence)**.  
+    - Reasons for revelation (**Asbab an-Nuzul**).  
 
 ---
 
 ## **Activities**
 
-1. **Write briefly about the Tafsirs of al-Baghawi and as-Suyuti, comparing the two.**  
-   - **Tafsir al-Baghawi**:  
-     - Simplified tafsir, abridged from Tafsir ath-Tha’labi.  
-     - Removes fabricated hadiths and Isra’iliyyat.  
-   - **Tafsir as-Suyuti (Ad-Durr al-Manthur)**:  
-     - Compilation of narrations without commentary or verification.  
-     - Focuses purely on transmitting reports from authentic sources.
-
-2. **What stands out most for you with regard to the tafsir Ad-Durr al-Manthur?**  
-   - Its reliance on narrations alone, preserving the sayings of the Salaf and classical scholars without personal interpretation. 
+1. **Describe the methodology of al-Qurtubi in his Tafsir, and compare and contrast it with the methodology of Ibn Jareer at-Tabari and that of al-Baghawi.**  
+   - **Al-Qurtubi**:  
+     - Focuses on fiqh and ahkam, addressing legal issues and differing opinions.  
+     - Selects the strongest view using evidence.  
+   - **Ibn Jareer at-Tabari**:  
+     - Primarily a narration-based tafsir with sound chains of narration.  
+     - Includes a broader analysis of linguistic and contextual meanings.  
+   - **Al-Baghawi**:  
+     - An abridged and simplified tafsir, free from weak narrations and innovations.  
 
 Back: [[Tafsir Level 1]] | Next: [[Fath al-Qadeer]]

@@ -1,7 +1,5 @@
 Back: [[Tafsir Level 1]] | Next: [[Methodologies of Tafsir]]
 
-## **Books of Tafsir of Which One Should Be Cautious**
-
 ### **1. Al-Kashf wa’l-Bayan ‘an Tafsir al-Qur’an**  
 - **Author**:  
   - Abu Ishaq Ahmad ibn Muhammad ibn Ibrahim ath-Tha’labi.  
